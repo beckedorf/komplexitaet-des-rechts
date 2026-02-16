@@ -1,0 +1,93 @@
+<xs:schema
+  attributeFormDefault="unqualified"
+  elementFormDefault="qualified"
+  xmlns:xs="http://www.w3.org/2001/XMLSchema"
+>
+  <xs:element name="document" type="documentType"/>
+  <xs:complexType name="documentType">
+    <xs:choice maxOccurs="unbounded" minOccurs="0">
+      <xs:element type="itemType" name="item"/>
+      <xs:element type="seqitemType" name="seqitem"/>
+    </xs:choice>
+    <xs:attribute type="xs:string" use="required"
+                  name="heading"/>
+    <xs:attribute type="xs:string" use="required"
+                  name="key" />
+    <xs:attribute type="xs:unsignedInt" use="required"
+                  name="level" />
+    <xs:attribute type="xs:string" name="abk_1"/>
+    <xs:attribute type="xs:string" name="abk_2"/>
+  </xs:complexType>
+  <xs:complexType name="itemType">
+    <xs:choice maxOccurs="unbounded" minOccurs="0">
+      <xs:element type="itemType" name="item"/>
+      <xs:element type="seqitemType" name="seqitem"/>
+    </xs:choice>
+    <xs:attribute type="xs:string" use="required"
+                  name="heading"/>
+    <xs:attribute type="xs:string" use="required"
+                  name="key"/>
+    <xs:attribute type="xs:unsignedInt" use="required"
+                  name="level"/>
+  </xs:complexType>
+  <xs:complexType name="seqitemType">
+    <xs:sequence>
+      <xs:element type="subseqitemType" minOccurs="0"
+                  maxOccurs="unbounded" name="subseqitem"/>
+      <xs:element type="textType" minOccurs="0"
+                  maxOccurs="unbounded" name="text"/>
+    </xs:sequence>
+    <xs:attribute type="xs:string" use="required"
+                  name="citekey"/>
+    <xs:attribute type="xs:string" use="required"
+                  name="heading"/>
+    <xs:attribute type="xs:string" use="required"
+                  name="key"/>
+    <xs:attribute type="xs:unsignedInt" use="required"
+                  name="level"/>
+  </xs:complexType>
+  <xs:complexType name="subseqitemType">
+    <xs:sequence>
+      <xs:element type="textType" name="text"/>
+    </xs:sequence>
+    <xs:attribute type="xs:string" use="required"
+                  name="key"/>
+    <xs:attribute type="xs:byte" use="required"
+                  name="level"/>
+  </xs:complexType>
+  <xs:complexType
+    name="textType"
+    mixed="true"
+  >
+    <xs:sequence>
+      <xs:element type="referenceType" minOccurs="0"
+                  maxOccurs="unbounded" name="reference"/>
+    </xs:sequence>
+  </xs:complexType>
+  <xs:complexType name="referenceType">
+    <xs:sequence>
+      <xs:element type="xs:string" name="main"/>
+      <xs:element type="xs:string" name="suffix"/>
+      <xs:element name="lawname">
+        <xs:complexType>
+          <xs:simpleContent>
+            <xs:extension base="xs:string">
+              <xs:attribute type="xs:string" name="type"/>
+            </xs:extension>
+          </xs:simpleContent>
+        </xs:complexType>
+      </xs:element>
+    </xs:sequence>
+    <xs:attribute type="xs:string" name="parsed"/>
+    <xs:attribute type="xs:string" name="parsed_verbose"/>
+    <xs:attribute type="xs:string" name="pattern"/>
+  </xs:complexType>
+  <xs:complexType name="lawnameType">
+    <xs:simpleContent>
+      <xs:extension base="xs:string">
+        <xs:attribute type="xs:string" use="required"
+                      name="type"/>
+      </xs:extension>
+    </xs:simpleContent>
+  </xs:complexType>
+</xs:schema>

@@ -1,0 +1,2945 @@
+Abkürzungsverzeichnis der Gesetze
+====================
+
+- **1-DM-GoldmünzG** Gesetz über die Ausprägung einer 1-DM-Goldmünze und die Errichtung der Stiftung "Geld und Währung"
+- **AABG** Gesetz zur Begrenzung der Arzneimittelausgaben der gesetzlichen Krankenversicherung
+- **AAÜG** Gesetz zur Überführung der Ansprüche und Anwartschaften aus Zusatz- und Sonderversorgungssystemen des Beitrittsgebiets
+- **AAÜGÄndG** Gesetz zur Änderung und Ergänzung des Anspruchs- und Anwartschaftsüberführungsgesetzes
+- **AAÜGÄndG-2** Zweites Gesetz zur Änderung und Ergänzung des Anspruchs- und Anwartschaftsüberführungsgesetzes
+- **ABAG** Gesetz zur Ablösung des Arznei- und Heilmittelbudgets
+- **ABBG** Gesetz zur Durchführung des Übereinkommens vom 9. Februar 1994 über die Erhebung von Gebühren für die Benutzung bestimmter Straßen mit schweren Nutzfahrzeugen
+- **AbfallG** Abfallgesetz (Artikel 1 des Gesetzes über die Vermeidung und Entsorgung von Abfällen)
+- **AbfVerbrG** Gesetz über die Überwachung und Kontrolle der grenzüberschreitenden Verbringung von Abfällen
+- **AbfVerbrG-2007** Gesetz zur Ausführung der Verordnung (EG) Nr. 1013/2006 des Europäischen Parlaments und des Rates vom 14. Juni 2006 über die Verbringung von Abfällen 1) und des Basler Übereinkommens vom 22. März 1989 über die Kontrolle der grenzüberschreitenden Verbringung gefährlicher Abfälle und ihrer Entsorgung 2)
+- **AbfVVBG** Gesetz zur Vermeidung, Verwertung und Beseitigung von Abfällen
+- **AbG** Gesetz über die Erhebung der Abschöpfungen nach Maßgabe der Verordnungen der Europäischen Wirtschaftsgemeinschaft über die schrittweise Errichtung gemeinsamer Marktorganisationen für die landwirtschaftlichen Erzeugnisse
+- **AbgG** Gesetz über die Rechtsverhältnisse der Mitglieder des Deutschen Bundestages
+- **AbkMadridBeitrG** Gesetz über den Beitritt des Reichs zu dem Madrider Abkommen betreffend die Unterdrückung falscher Herkunftsangaben auf Waren
+- **ABMG** Gesetz über die Erhebung von streckenbezogenen Gebühren für die Benutzung von Bundesautobahnen mit schweren Nutzfahrzeugen
+- **AbsFondsForstAuflG** Gesetz zur Auflösung und Abwicklung der Anstalt Absatzförderungsfonds der deutschen Forst- und Holzwirtschaft
+- **AbsFondsG** Gesetz über die Errichtung eines zentralen Fonds zur Absatzförderung der deutschen Land- und Ernährungswirtschaft
+- **AbsFondsLwAuflG** Gesetz zur Auflösung und Abwicklung der Anstalt Absatzförderungsfonds der deutschen Land- und Ernährungswirtschaft
+- **AbwAG** Gesetz über Abgaben für das Einleiten von Abwasser in Gewässer
+- **ABZusForstAbkPOLG** Gesetz zu dem Abkommen vom 20. März 1995 zwischen der Bundesrepublik Deutschland und der Republik Polen über den Autobahnzusammenschluß sowie über den Bau und den Umbau einer Grenzbrücke im Raum Forst und Erlenholz (Olszyna)
+- **ABZusGrBrückVtrCESG** Gesetz zu dem Vertrag vom 13. Juli 1995 zwischen der Bundesrepublik Deutschland und der Tschechischen Republik über den Zusammenschluß der deutschen Autobahn A 6 und der tschechischen Autobahn D 5 an der gemeinsamen Staatsgrenze durch Errichtung einer Grenzbrücke
+- **ABZusPolAbkG** Gesetz zu dem Abkommen vom 23. April 1993 zwischen der Bundesrepublik Deutschland und der Republik Polen über den Autobahnzusammenschluß im Raum Frankfurt/Oder und Schwetig
+- **AdenauerHStiftG** Gesetz über die Errichtung einer Stiftung Bundeskanzler-Adenauer-Haus
+- **AdG** Gesetz über die Annahme als Kind und zur Änderung anderer Vorschriften
+- **AdKG** Gesetz zur Errichtung der Akademie der Künste
+- **ADRÄndProtG** Gesetz zu dem Protokoll vom 28. Oktober 1993 zur Änderung des Europäischen Übereinkommens vom 30. September 1957 über die internationale Beförderung gefährlicher Güter auf der Straße (ADR)
+- **ADRG** Gesetz zu dem Europäischen Übereinkommen vom 30. September 1957 über die internationale Beförderung gefährlicher Güter auf der Straße (ADR)
+- **AdÜbAG** Gesetz zur Ausführung des Haager Übereinkommens vom 29. Mai 1993 über den Schutz von Kindern und die Zusammenarbeit auf dem Gebiet der internationalen Adoption
+- **AdVermiG-1976** Gesetz über die Vermittlung der Annahme als Kind und über das Verbot der Vermittlung von Ersatzmüttern
+- **AdWirkG** Gesetz über Wirkungen der Annahme als Kind nach ausländischem Recht
+- **ÄArbVtrG** Gesetz über befristete Arbeitsverträge mit Ärzten in der Weiterbildung
+- **AEG** Allgemeines Eisenbahngesetz
+- **AEG-1994** Allgemeines Eisenbahngesetz
+- **AEntG** Gesetz über zwingende Arbeitsbedingungen bei grenzüberschreitenden Dienstleistungen
+- **AEntG-2009** Gesetz über zwingende Arbeitsbedingungen für grenzüberschreitend entsandte und für regelmäßig im Inland beschäftigte Arbeitnehmer und Arbeitnehmerinnen
+- **AFBG** Gesetz zur Förderung der beruflichen Aufstiegsfortbildung
+- **AFG** Arbeitsförderungsgesetz
+- **AFG-116G** Gesetz zur Sicherung der Neutralität der Bundesanstalt für Arbeit bei Arbeitskämpfen
+- **AFG-DDR** Arbeitsförderungsgesetz
+- **AFGÄndG-2** Zweites Gesetz zur Änderung und Ergänzung des Arbeitsförderungsgesetzes
+- **AFGÄndG-4** Viertes Gesetz zur Änderung des Arbeitsförderungsgesetzes
+- **AFGHStruktG** Gesetz zur Verbesserung der Haushaltsstruktur im Geltungsbereich des Arbeitsförderungs- und des Bundesversorgungsgesetzes
+- **AFGuaÄndG** Gesetz zur Änderung arbeitsförderungsrechtlicher und anderer sozialrechtlicher Vorschriften
+- **AFIG** Gesetz zur Veröffentlichung von Informationen über die Zahlung von Mitteln aus den Europäischen Fonds für Landwirtschaft und Fischerei
+- **AFKG** Gesetz zur Konsolidierung der Arbeitsförderung
+- **AfrEntwBkÜbkG** Gesetz zu dem Übereinkommen vom 4. August 1963 zur Errichtung der Afrikanischen Entwicklungsbank
+- **AFRG** Gesetz zur Reform der Arbeitsförderung
+- **AFSG** Gesetz zu dem Internationalen Übereinkommen von 2001 über die Beschränkung des Einsatzes schädlicher Bewuchsschutzsysteme auf Schiffen
+- **AFuG** Gesetz über den Amateurfunk
+- **AFuG-1997** Gesetz über den Amateurfunk
+- **AFWoG** Gesetz über den Abbau der Fehlsubventionierung im Wohnungswesen
+- **AGB-DDR** Arbeitsgesetzbuch der Deutschen Demokratischen Republik
+- **AGBG** Gesetz zur Regelung des Rechts der Allgemeinen Geschäftsbedingungen
+- **AGG** Allgemeines Gleichbehandlungsgesetz
+- **AgrarAbsFDG** Gesetz zur Durchführung der Rechtsakte der Europäischen Gemeinschaft oder der Europäischen Union über gemeinschaftliche Informations- und Absatzförderungsmaßnahmen für Agrarerzeugnisse
+- **AgrarMSG** Gesetz zur Weiterentwicklung der Marktstruktur im Agrarbereich
+- **AgrarZahlVerpflG** Gesetz zur Regelung der Einhaltung von Anforderungen und Standards im Rahmen unionsrechtlicher Vorschriften über Agrarzahlungen
+- **AgrStatG** Gesetz über Agrarstatistiken
+- **AgrStruktG** Gesetz über die Gemeinschaftsaufgabe "Verbesserung der Agrarstruktur und des Küstenschutzes"
+- **AgrStruktGÄndG** Gesetz zur Änderung des Gesetzes über die Gemeinschaftsaufgabe "Verbesserung der Agrarstruktur und des Küstenschutzes"
+- **AHiVwVtrAUTG** Gesetz zu dem Vertrag vom 31. Mai 1988 zwischen der Bundesrepublik Deutschland und der Republik Österreich über Amts- und Rechtshilfe in Verwaltungssachen
+- **AHStatGes** Gesetz über die Statistik des grenzüberschreitenden Warenverkehrs
+- **AHStLwG** Gesetz über die Außenhandelsstelle für Erzeugnisse der Ernährung und Landwirtschaft
+- **AHStLwGebG** Gesetz über die Erhebung von Gebühren durch die Außenhandelsstelle des Bundesministeriums für Ernährung, Landwirtschaft und Forsten
+- **AIIBÜbkG** Gesetz zu dem Übereinkommen vom 29. Juni 2015 zur Gründung der Asiatischen Infrastruktur-Investitionsbank
+- **AkaGrG** Gesetz über die Führung akademischer Grade
+- **AKG** Gesetz zur allgemeinen Regelung durch den Krieg und den Zusammenbruch des Deutschen Reiches entstandener Schäden
+- **AkkStelleG** Gesetz über die Akkreditierungsstelle
+- **AKostG** Auslandskostengesetz
+- **AKP-EWGAbk4G** Gesetz zu dem Vierten AKP-EWG-Abkommen von Lome vom 15. Dezember 1989 sowie zu den mit diesem Abkommen in Zusammenhang stehenden Abkommen
+- **AktG** Aktiengesetz
+- **AktGEG** Einführungsgesetz zum Aktiengesetz
+- **AktMitglRG** Gesetz über die Ausübung von Mitgliedschaftsrechten aus Aktien während der Wertpapierbereinigung
+- **ALG** Gesetz über die Alterssicherung der Landwirte
+- **AlkopopStG** Gesetz über die Erhebung einer Sondersteuer auf alkoholhaltige Süßgetränke (Alkopops) zum Schutz junger Menschen
+- **AlkoVerfrG** Gesetz über die Verfrachtung alkoholischer Waren
+- **AlkStG** Alkoholsteuergesetz
+- **AltentVtrG** Gesetz über die anderweitige Festsetzung von Geldbezügen aus Altenteilsverträgen
+- **AltfAbwG** Gesetz zur beschleunigten Abwicklung einiger Altforderungen
+- **AltFRG** Gesetz zur Regelung bestimmter Altforderungen
+- **AltGG** Altersgeldgesetz
+- **AltPflG** Gesetz über die Berufe in der Altenpflege
+- **AltSchG** Gesetz über Altschuldenhilfen für Kommunale Wohnungsunternehmen, Wohnungsgenossenschaften und private Vermieter in dem in Artikel 3 des Einigungsvertrages genannten Gebiet
+- **AltTZG** Gesetz zur Förderung eines gleitenden Übergangs älterer Arbeitnehmer in den Ruhestand (Artikel 2 des Gesetzes zur Änderung des Arbeitsförderungsgesetzes und zur Förderung eines gleitenden Übergangs älterer Arbeitnehmer in den Ruhestand)
+- **AltTZG-1996** Altersteilzeitgesetz
+- **AltÜbGAusglG** Gesetz über den Ausgleich von Aufwendungen für das Altersübergangsgeld
+- **AltZertG** Gesetz über die Zertifizierung von Altersvorsorge- und Basisrentenverträgen
+- **AMbG** Allgemeines Magnetschwebebahngesetz
+- **AMG-1976** Gesetz über den Verkehr mit Arzneimitteln
+- **AMG1976ÄndG-1** Erstes Gesetz zur Änderung des Arzneimittelgesetzes
+- **AMRabG** Gesetz über Rabatte für Arzneimittel
+- **AMRNOG** Gesetz zur Neuordnung des Arzneimittelrechts
+- **AnfG** Gesetz, betreffend die Anfechtung von Rechtshandlungen eines Schuldners außerhalb des Konkursverfahrens
+- **AnfG-1999** Gesetz über die Anfechtung von Rechtshandlungen eines Schuldners außerhalb des Insolvenzverfahrens
+- **AnlG** Anleihe-Gesetz von 1950
+- **AnpflEigentG** Gesetz zur Regelung des Eigentums an von landwirtschaftlichen Produktionsgenossenschaften vorgenommenen Anpflanzungen
+- **AntarktMeerSchÜbkG** Gesetz zu dem Übereinkommen vom 20. Mai 1980 über die Erhaltung der lebenden Meeresschätze der Antarktis
+- **AntarktUmwSchProtAG** Gesetz zur Ausführung des Umweltschutzprotokolls vom 4. Oktober 1991 zum Antarktis-Vertrag
+- **AntarktUmwSchProtG** Gesetz zum Umweltschutzprotokoll vom 4. Oktober 1991 zum Antarktis-Vertrag
+- **AntarktVtrG** Gesetz zum Antarktis-Vertrag vom 1. Dezember 1959
+- **AntiDHG** Gesetz über die Hilfe für durch Anti-D-Immunprophylaxe mit dem Hepatitis-C-Virus infizierte Personen
+- **AntiDopG** Gesetz gegen Doping im Sport
+- **AO-1977** Abgabenordnung
+- **AOEG-1977** Einführungsgesetz zur Abgabenordnung
+- **APAstErG** Gesetz zur Einrichtung einer Abschlussprüferaufsichtsstelle beim Bundesamt für Wirtschaft und Ausfuhrkontrolle
+- **ApoAnwRstG** Gesetz über die Rechtsstellung vorgeprüfter Apothekeranwärter
+- **ApoG** Gesetz über das Apothekenwesen
+- **ArbGBeschlG** Gesetz zur Vereinfachung und Beschleunigung des arbeitsgerichtlichen Verfahrens
+- **ArbGG** Arbeitsgerichtsgesetz
+- **ArblVAbkCHEG** Gesetz zu dem Abkommen vom 20. Oktober 1982 zwischen der Bundesrepublik Deutschland und der Schweizerischen Eidgenossenschaft über Arbeitslosenversicherung
+- **ArbnErfG** Gesetz über Arbeitnehmererfindungen
+- **ArbnUnterkG** Gesetz über die Mindestanforderungen an Unterkünfte für Arbeitnehmer
+- **ArbPlSchG** Gesetz über den Schutz des Arbeitsplatzes bei Einberufung zum Wehrdienst
+- **ArbRBerG-1** Gesetz zur Änderung des Kündigungsrechtes und anderer arbeitsrechtlicher Vorschriften
+- **ArbREGAnpG** Gesetz über die Gleichbehandlung von Männern und Frauen am Arbeitsplatz und über die Erhaltung von Ansprüchen bei Betriebsübergang
+- **ArbSchAufhG** Gesetz über die Aufhebung von Vorschriften auf dem Gebiet des Arbeitsschutzes
+- **ArbSchG** Gesetz über die Durchführung von Maßnahmen des Arbeitsschutzes zur Verbesserung der Sicherheit und des Gesundheitsschutzes der Beschäftigten bei der Arbeit
+- **ArbVAbkGBRG** Gesetz zu dem Abkommen vom 20. April 1960 zwischen der Bundesrepublik Deutschland und dem Vereinigten Königreich Großbritannien und Nordirland über Arbeitslosenversicherung
+- **ArbVermFrWohlfG** Gesetz über die Wiederaufnahme der nichtgewerbsmäßigen Arbeitsvermittlung durch die Einrichtungen der freien Wohlfahrtspflege
+- **ArbZAbsichG** Gesetz zur sozialrechtlichen Absicherung flexibler Arbeitszeitregelungen
+- **ArbZBäckG** Gesetz über die Arbeitszeit in Bäckereien und Konditoreien
+- **ArbZG** Arbeitszeitgesetz
+- **ArbZRG** Gesetz zur Vereinheitlichung und Flexibilisierung des Arbeitszeitrechts
+- **ArchLG** Gesetz zur Regelung von Ingenieur- und Architektenleistungen
+- **ARG** Gesetz zur Regelung der Altschulden für gesellschaftliche Einrichtungen
+- **ARGEuaÄndG** Gesetz zur Regelung der Altschulden für gesellschaftliche Einrichtungen, zur Änderung des Erblastentilgungsfonds-Gesetzes und zur Änderung des Investitionsförderungsgesetzes Aufbau Ost
+- **ARSchiedsGAufhG** Gesetz zur Aufhebung des Gesetzes über die Errichtung und das Verfahren der Schiedsstellen für Arbeitsrecht und zur Änderung des Arbeitsförderungsgesetzes
+- **ArtSchutzÜbkG** Gesetz zu dem Übereinkommen vom 3. März 1973 über den internationalen Handel mit gefährdeten Arten freilebender Tiere und Pflanzen
+- **ArztWohnortG** Gesetz zur Einführung des Wohnortprinzips bei Honorarvereinbarungen für Ärzte und Zahnärzte
+- **ASchulG** Gesetz über die Förderung Deutscher Auslandsschulen
+- **AsEntwBkÜbkG** Gesetz zu dem Übereinkommen vom 4. Dezember 1965 zur Errichtung der Asiatischen Entwicklungsbank
+- **ASG** Gesetz zur Sicherstellung von Arbeitsleistungen für Zwecke der Verteidigung einschließlich des Schutzes der Zivilbevölkerung
+- **ASiG** Gesetz über Betriebsärzte, Sicherheitsingenieure und andere Fachkräfte für Arbeitssicherheit
+- **ASLwApFG** Gesetz zur Förderung der agrarstrukturellen und agrarsozialen Anpassung der Landwirtschaft der DDR an die soziale Marktwirtschaft - Fördergesetz -
+- **ASpG** Gesetz zur Milderung von Härten der Währungsreform
+- **ASpG-4Abs4G** Gesetz zu § 4 Absatz 4 des Altsparergesetzes
+- **ASRG-1995** Gesetz zur Reform der agrarsozialen Sicherung
+- **AssoziierungsAbkEG-ALBG** Gesetz zu dem Stabilisierungs- und Assoziierungsabkommen zwischen den Europäischen Gemeinschaften und ihren Mitgliedstaaten einerseits und der Republik Albanien andererseits
+- **AssoziierungsAbkEWG-TURG** Gesetz zu dem Assoziierungsabkommen vom 12. September 1963 zwischen der Europäischen Wirtschaftsgemeinschaft und der Türkei sowie zu den mit diesem Abkommen in Zusammenhang stehenden Abkommen
+- **AStatG** Gesetz über die amtliche Statistik der DDR
+- **AStG** Gesetz über die Besteuerung bei Auslandsbeziehungen
+- **AsylbLG** Asylbewerberleistungsgesetz
+- **AsylVfG-1992** Asylgesetz
+- **AsylVfGNG** Gesetz zur Neuregelung des Asylverfahrens
+- **ATA-OTA-G** Gesetz über den Beruf der Anästhesietechnischen Assistentin und des Anästhesietechnischen Assistenten und über den Beruf der Operationstechnischen Assistentin und des Operationstechnischen Assistenten
+- **ATAÜbkG** Gesetz zu dem Zollübereinkommen von Brüssel vom 6. Dezember 1961 über das Carnet A.T.A. für die vorübergehende Einfuhr von Waren
+- **ATDG** Gesetz zur Errichtung einer standardisierten zentralen Antiterrordatei von Polizeibehörden und Nachrichtendiensten von Bund und Ländern
+- **AtG** Gesetz über die friedliche Verwendung der Kernenergie und den Schutz gegen ihre Gefahren
+- **AtGÄndG-3** Drittes Gesetz zur Änderung des Atomgesetzes
+- **AtGKostÄndG** Gesetz zur Änderung von Kostenvorschriften des Atomgesetzes
+- **AtHaftAbkCHEG** Gesetz zu dem Abkommen vom 22. Oktober 1986 zwischen der Bundesrepublik Deutschland und der Schweizerischen Eidgenossenschaft über die Haftung gegenüber Dritten auf dem Gebiet der Kernenergie
+- **AtHaftProtParis2004G** Gesetz zu den Protokollen vom 12. Februar 2004 zur Änderung des Übereinkommens vom 29. Juli 1960 über die Haftung gegenüber Dritten auf dem Gebiet der Kernenergie in der Fassung des Zusatzprotokolls vom 28. Januar 1964 und des Protokolls vom 16. November 1982 und zur Änderung des Zusatzübereinkommens vom 31. Januar 1963 zum Pariser Übereinkommen vom 29. Juli 1960 über die Haftung gegenüber Dritten auf dem Gebiet der Kernenergie in der Fassung des Zusatzprotokolls vom 28. Januar 1964 und des Protokolls vom 16. November 1982
+- **AtHaftÜbkG** Gesetz zu dem Übereinkommen vom 29. Juli 1960 über die Haftung gegenüber Dritten auf dem Gebiet der Kernenergie nebst Zusatzvereinbarungen, zu dem Übereinkommen vom 25. Mai 1962 über die Haftung der Inhaber von Reaktorschiffen nebst Zusatzprotokoll und zu dem Übereinkommen vom 17. Dezember 1971 über die zivilrechtliche Haftung bei der Beförderung von Kernmaterial auf See
+- **ATPÄndG-2** Gesetz zu den Änderungen vom 24. Februar 1995 und 30. Juli 1997 des Übereinkommens vom 1. September 1970 über internationale Beförderungen leicht verderblicher Lebensmittel und über die besonderen Beförderungsmittel, die für diese Beförderungen zu verwenden sind
+- **ATPAnl1-3ÄndG** Gesetz zu den Änderungen vom 22. November 1980, 13. August 1982, 15. Juli 1983, 20. Oktober 1985 und 19. April 1986 der Anlage 1 und vom 28. Oktober 1980 und 20. Januar 1985 der Anlage 3 des Übereinkommens vom 1. September 1970 über internationale Beförderungen leicht verderblicher Lebensmittel und über die besonderen Beförderungsmittel, die für diese Beförderungen zu verwenden sind
+- **ATPG** Gesetz zu dem Übereinkommen vom 1. September 1970 über internationale Beförderungen leicht verderblicher Lebensmittel und über die besonderen Beförderungsmittel, die für diese Beförderungen zu verwenden sind (ATP)
+- **AtSchÜbkG** Gesetz zu dem Übereinkommen vom 26. Oktober 1979 über den physischen Schutz von Kernmaterial
+- **AÜG** Gesetz zur Regelung der Arbeitnehmerüberlassung
+- **AÜGuaÄndG** Gesetz zur Regelung der gewerbsmäßigen Arbeitnehmerüberlassung (Arbeitnehmerüberlassungsgesetz - AÜG) und zur Änderung anderer Gesetze
+- **AufAG** Gesetz über den Ausgleich der Arbeitgeberaufwendungen für Entgeltfortzahlung
+- **AufbhG** Gesetz zur Errichtung eines Sondervermögens „Aufbauhilfe“
+- **AufenthEWGG** Gesetz über Einreise und Aufenthalt von Staatsangehörigen der Mitgliedstaaten der Europäischen Wirtschaftsgemeinschaft
+- **AufenthG-2004** Gesetz über den Aufenthalt, die Erwerbstätigkeit und die Integration von Ausländern im Bundesgebiet
+- **AufhFErG** Gesetz zur Änderung steuerrechtlicher Vorschriften und zur Errichtung eines Fonds "Aufbauhilfe"
+- **AufhFG** Gesetz zur Errichtung eines Fonds "Aufbauhilfe"
+- **AufsRatAbkCHEG** Gesetz zu dem Vertrag zwischen der Bundesrepublik Deutschland und der Schweizerischen Eidgenossenschaft über die Regelung von Fragen, welche die Aufsichtsräte der in der Bundesrepublik Deutschland zum Betrieb von Grenzkraftwerken am Rhein errichteten Aktiengesellschaften betreffen
+- **AUG** Gesetz zur Geltendmachung von Unterhaltsansprüchen im Verkehr mit ausländischen Staaten
+- **AUG-2011** Gesetz zur Geltendmachung von Unterhaltsansprüchen im Verkehr mit ausländischen Staaten
+- **AusglBGG** Gesetz über einen Ausgleich für Dienstbeschädigungen im Beitrittsgebiet
+- **AusglFoG-1965** Gesetz über die Tilgung von Ausgleichsforderungen
+- **AusglLeistG** Gesetz über staatliche Ausgleichsleistungen für Enteignungen auf besatzungsrechtlicher oder besatzungshoheitlicher Grundlage, die nicht mehr rückgängig gemacht werden können
+- **AusglVtrNLDG** Gesetz zu dem Vertrag vom 8. April 1960 zwischen der Bundesrepublik Deutschland und dem Königreich der Niederlande zur Regelung von Grenzfragen und anderen zwischen beiden Ländern bestehenden Problemen (Ausgleichsvertrag)
+- **AusglZG** Gesetz zur Ausgleichszahlung durch die Träger der gesetzlichen Rentenversicherung an die Krankenkassen
+- **AuslG-1990** Gesetz über die Einreise und den Aufenthalt von Ausländern im Bundesgebiet
+- **AuslInvestmG** Gesetz über den Vertrieb ausländischer Investmentanteile und über die Besteuerung der Erträge aus ausländischen Investmentanteilen (Erster Teil des Gesetzes über den Vertrieb ausländischer Investmentanteile, über die Besteuerung ihrer Erträge sowie zur Änderung und Ergänzung des Gesetzes über Kapitalanlagegesellschaften)
+- **AuslInvG** Gesetz über steuerliche Maßnahmen bei Auslandsinvestitionen der deutschen Wirtschaft
+- **AuslPflVG** Gesetz über die Haftpflichtversicherung für ausländische Kraftfahrzeuge und Kraftfahrzeuganhänger
+- **AuslSchSprAbkG** Gesetz über das Abkommen zur Vollstreckung ausländischer Schiedssprüche
+- **AuslSchuldAbkAG** Gesetz zur Ausführung des Abkommens vom 27. Februar 1953 über deutsche Auslandsschulden
+- **AuslSchuldAbkAGErG-3** Drittes Gesetz zur Ergänzung des Gesetzes zur Ausführung des Abkommens vom 27. Februar 1953 über deutsche Auslandsschulden
+- **AuslSchuldVerjG** Gesetz über die Verjährung von deutschen Auslandsschulden und ähnlichen Schulden
+- **AuslStreitkrNotWG** Gesetz zu dem Notenwechsel vom 29. April 1998 über die Rechtsstellung der dänischen, griechischen, italienischen, luxemburgischen, norwegischen, portugiesischen, spanischen und türkischen Streitkräfte in der Bundesrepublik Deutschland
+- **AuslVerbindlG** Gesetz über Zahlungsverbindlichkeiten gegenüber dem Ausland
+- **AuslWBEntschG** Gesetz zur näheren Regelung der Entschädigungsansprüche für Auslandsbonds
+- **AuslWBG** Gesetz zur Bereinigung von deutschen Schuldverschreibungen, die auf ausländische Währung lauten
+- **AuslWoBauG** Gesetz über eine Wiedereingliederungshilfe im Wohnungsbau für rückkehrende Ausländer
+- **AusstG** Gesetz betreffend den Schutz von Mustern auf Ausstellungen
+- **AusÜbsiedWOG** Gesetz über die Festlegung eines vorläufigen Wohnortes für Spätaussiedler
+- **AusÜbsInvFHG** Gesetz über Finanzhilfen des Bundes gemäß Artikel 104a Abs. 4 GG für Investitionen zur vorläufigen Unterbringung von Aussiedlern und Übersiedlern
+- **AuswSG** Gesetz zum Schutze der Auswanderer und Auswanderinnen
+- **AutGAAPolAbkG** Gesetz zu dem Abkommen vom 29. Juli 1992 zwischen der Bundesrepublik Deutschland und der Republik Polen über den Autobahnzusammenschluß und den Bau von Grenzabfertigungsanlagen für den neuen Grenzübergang im Raum Görlitz und Zgorzelec
+- **AutobBrVtrBELG** Gesetz zum Vertrag vom 5. Februar 1979 zwischen der Bundesrepublik Deutschland und dem Königreich Belgien über den Bau und die Unterhaltung einer Autobahnbrücke über die Our bei Steinebrück
+- **AVAG** Gesetz zur Ausführung zwischenstaatlicher Anerkennungs- und Vollstreckungsverträge in Zivil- und Handelssachen
+- **AVAG-2001** Gesetz zur Ausführung zwischenstaatlicher Verträge und zur Durchführung von Abkommen der Europäischen Union auf dem Gebiet der Anerkennung und Vollstreckung in Zivil- und Handelssachen
+- **AVAVG** Gesetz über Arbeitsvermittlung und Arbeitslosenversicherung
+- **AWG** Außenwirtschaftsgesetz
+- **AWG-2013** Außenwirtschaftsgesetz
+- **AWKZG** Gesetz über den Außenwirtschafts-, Kapital- und Zahlungsverkehr
+- **AZG** Anteilzollgesetz
+- **AZRG** Gesetz über das Ausländerzentralregister
+- **BABauRaumOG** Gesetz über die Errichtung eines Bundesamtes für Bauwesen und Raumordnung (Artikel 1 des Gesetzes über die Errichtung eines Bundesamtes für Bauwesen und Raumordnung sowie zur Änderung besoldungsrechtlicher Vorschriften)
+- **BABG** Gesetz über die vermögensrechtlichen Verhältnisse der Bundesautobahnen und sonstigen Bundesstraßen des Fernverkehrs
+- **BABWismarG** Gesetz über den Bau des Abschnitts Wismar West-Wismar Ost der Bundesautobahn A 20 Lübeck-Bundesgrenze (A 11)
+- **BÄO** Bundesärzteordnung
+- **BÄOÄndG-4** Viertes Gesetz zur Änderung der Bundesärzteordnung
+- **BÄOuaÄndG-2004** Gesetz zur Änderung der Bundesärzteordnung und anderer Gesetze
+- **BAFG** Gesetz über die Errichtung des Bundesaufsichtsamtes für Flugsicherung
+- **BAFlSBAÜbnG** Gesetz zur Übernahme der Beamten und Arbeitnehmer der Bundesanstalt für Flugsicherung
+- **BAföG** Bundesgesetz über individuelle Förderung der Ausbildung
+- **BAföGÄndG-12** Zwölftes Gesetz zur Änderung des Bundesausbildungsförderungsgesetzes
+- **BAföGÄndG-15** Fünfzehntes Gesetz zur Änderung des Bundesausbildungsförderungsgesetzes
+- **BAföGÄndG-17** Siebzehntes Gesetz zur Änderung des Bundesausbildungsförderungsgesetzes
+- **BAföGÄndG-18** Achtzehntes Gesetz zur Änderung des Bundesausbildungsförderungsgesetzes
+- **BAföGÄndG-19** Neunzehntes Gesetz zur Änderung des Bundesausbildungsförderungsgesetzes
+- **BAföGÄndG-20** Zwanzigstes Gesetz zur Änderung des Bundesausbildungsförderungsgesetzes
+- **BAföGÄndG-5** Fünftes Gesetz zur Änderung des Bundesausbildungsförderungsgesetzes
+- **BahnG** Gesetz über Maßnahmen zur Aufrechterhaltung des Betriebs von Bahnunternehmen des öffentlichen Verkehrs
+- **BahnVorschrAnwG** Gesetz betreffend die Anwendung landesgesetzlicher Vorschriften über Bahneinheiten
+- **BaktWaffVernÜbkG** Gesetz zu dem Übereinkommen vom 10. April 1972 über das Verbot der Entwicklung, Herstellung und Lagerung bakteriologischer (biologischer) Waffen und von Toxinwaffen sowie über die Vernichtung solcher Waffen
+- **BannMG** Bannmeilengesetz
+- **BApO** Bundes-Apothekerordnung
+- **BAPostG** Gesetz über die Errichtung einer Bundesanstalt für Post und Telekommunikation Deutsche Bundespost
+- **BArbRSaarEG** Gesetz zur Einführung von Bundesrecht auf den Gebieten der Arbeitsbedingungen und des Familienlastenausgleichs im Saarland
+- **BArchG** Gesetz über die Sicherung und Nutzung von Archivgut des Bundes
+- **BArchG-2017** Gesetz über die Nutzung und Sicherung von Archivgut des Bundes
+- **BASIG** Gesetz über das Bundesinstitut für Impfstoffe und biomedizinische Arzneimittel
+- **BaslÜbkG** Gesetz zu dem Basler Übereinkommen vom 22. März 1989 über die Kontrolle der grenzüberschreitenden Verbringung gefährlicher Abfälle und ihrer Entsorgung
+- **BAStrlSchG** Gesetz über die Errichtung eines Bundesamtes für Strahlenschutz
+- **BattG** Gesetz über das Inverkehrbringen, die Rücknahme und die umweltverträgliche Entsorgung von Batterien und Akkumulatoren
+- **BauFordSiG** Gesetz über die Sicherung der Bauforderungen
+- **BauGBMaßnG** Maßnahmengesetz zum Baugesetzbuch (Artikel 2 des Gesetzes zur Erleichterung des Wohnungsbaus im Planungs- und Baurecht sowie zur Änderung mietrechtlicher Vorschriften)
+- **BauPG** Gesetz über das Inverkehrbringen von und den freien Warenverkehr mit Bauprodukten zur Umsetzung der Richtlinie 89/106/EWG des Rates vom 21. Dezember 1988 zur Angleichung der Rechts- und Verwaltungsvorschriften der Mitgliedstaaten über Bauprodukte und anderer Rechtsakte der Europäischen Gemeinschaften
+- **BauPG-2013** Gesetz zur Durchführung der Verordnung (EU) Nr. 305/2011 zur Festlegung harmonisierter Bedingungen für die Vermarktung von Bauprodukten und zur Umsetzung und Durchführung anderer Rechtsakte der Europäischen Union in Bezug auf Bauprodukte
+- **BAusfAmtG** Gesetz über die Errichtung eines Bundesausfuhramtes
+- **BauSparkG** Gesetz über Bausparkassen
+- **BauStatG-2** Zweites Gesetz über die Durchführung von Statistiken der Bautätigkeit und die Fortschreibung des Gebäudebestandes
+- **BauStiftG** Gesetz zur Errichtung einer "Bundesstiftung Baukultur"
+- **BAVG** Gesetz über die Errichtung eines Bundesaufsichtsamtes für das Versicherungswesen
+- **BAW-BAFAG** Gesetz über die Zusammenlegung des Bundesamtes für Wirtschaft mit dem Bundesausfuhramt
+- **BAWG** Gesetz über die Abwicklung der Bundesstelle für den Warenverkehr der gewerblichen Wirtschaft und die Errichtung eines *Ku Bundesamtes für gewerbliche Wirtschaft *KE
+- **BayLRBerG** Gesetz zur Bereinigung des Bundesrecht gewordenen ehemaligen bayerischen Landesrechts
+- **BBahnG** Bundesbahngesetz
+- **BBahnVermG** Gesetz über die vermögensrechtlichen Verhältnisse der Deutschen Bundesbahn
+- **BBankG** Gesetz über die Deutsche Bundesbank
+- **BBauG** Baugesetzbuch
+- **BBauVwG** Gesetz über die Bundesbauverwaltung (Artikel 52 Zuständigkeitsanpassungs-Gesetz)
+- **BBergG** Bundesberggesetz
+- **BBesErhG-1** Erstes Gesetz über die Erhöhung von Dienst- und Versorgungsbezügen in Bund und Ländern
+- **BBesErhG-2** Zweites Gesetz über die Erhöhung von Dienst- und Versorgungsbezügen in Bund und Ländern
+- **BBesErhG-3** Drittes Gesetz über die Erhöhung von Dienst- und Versorgungsbezügen in Bund und Ländern
+- **BBesErhG-4** Viertes Gesetz über die Erhöhung von Dienst- und Versorgungsbezügen in Bund und Ländern
+- **BBesErhG-5** Fünftes Gesetz über die Erhöhung von Dienst- und Versorgungsbezügen in Bund und Ländern
+- **BBesErhG-6** Sechstes Gesetz über die Erhöhung von Dienst- und Versorgungsbezügen in Bund und Ländern
+- **BBesErhG-7** Siebentes Gesetz über die Erhöhung von Dienst- und Versorgungsbezügen in Bund und Ländern
+- **BBesG** Bundesbesoldungsgesetz
+- **BBesGÄndG-3-1986** Drittes Gesetz zur Änderung des Bundesbesoldungsgesetzes
+- **BBesO-C** Bundesbesoldungsordnung C (Anlage II des Bundesbesoldungsgesetzes)
+- **BBG** Bundesbeamtengesetz
+- **BBG-2009** Bundesbeamtengesetz
+- **BBG-BBesGÄndG-2** Zweites Gesetz zur Änderung beamtenrechtlicher und besoldungsrechtlicher Vorschriften
+- **BBGÄndG-2** Zweites Gesetz zur Änderung des Bundesbeamtengesetzes
+- **BBiG** Berufsbildungsgesetz
+- **BBiG-2005** Berufsbildungsgesetz
+- **BBKG** Gesetz über die Errichtung des Bundesamtes für Bevölkerungsschutz und Katastrophenhilfe
+- **BBodSchG** Gesetz zum Schutz vor schädlichen Bodenveränderungen und zur Sanierung von Altlasten
+- **BBPlG** Gesetz über den Bundesbedarfsplan
+- **BBVAnpG-2000** Gesetz über die Anpassung von Dienst- und Versorgungsbezügen in Bund und Ländern 2000
+- **BBVAnpG-2003-2004** Gesetz über die Anpassung von Dienst- und Versorgungsbezügen in Bund und Ländern 2003/2004 sowie zur Änderung dienstrechtlicher Vorschriften
+- **BBVAnpG-81** Gesetz über die Anpassung von Dienst- und Versorgungsbezügen in Bund und Ländern 1981
+- **BBVAnpG-82** Gesetz über die Anpassung von Dienst- und Versorgungsbezügen in Bund und Ländern 1982
+- **BBVAnpG-83** Gesetz über die Anpassung von Dienst- und Versorgungsbezügen in Bund und Ländern 1983 (Artikel 11 des Haushaltsbegleitgesetzes 1983)
+- **BBVAnpG-85** Gesetz über die Anpassung von Dienst- und Versorgungsbezügen in Bund und Ländern 1985
+- **BBVAnpG-86** Gesetz über die Anpassung von Dienst- und Versorgungsbezügen in Bund und Ländern 1986
+- **BBVAnpG-87** Gesetz über die Anpassung von Dienst- und Versorgungsbezügen in Bund und Ländern 1987
+- **BBVAnpG-88** Gesetz über die Anpassung von Dienst- und Versorgungsbezügen in Bund und Ländern 1988
+- **BBVAnpG-91** Gesetz über die Anpassung von Dienst- und Versorgungsbezügen in Bund und Ländern 1991
+- **BBVAnpG-92** Gesetz über die Anpassung von Dienst- und Versorgungsbezügen in Bund und Ländern 1992
+- **BBVAnpG-93** Gesetz über die Anpassung von Dienst- und Versorgungsbezügen in Bund und Ländern 1993
+- **BBVAnpG-94** Gesetz über die Anpassung von Dienst- und Versorgungsbezügen in Bund und Ländern 1994
+- **BBVAnpG-95** Gesetz über die Anpassung von Dienst- und Versorgungsbezügen in Bund und Ländern 1995
+- **BBVAnpG-96-97** Gesetz über die Anpassung von Dienst- und Versorgungsbezügen in Bund und Ländern 1996/1997
+- **BBVAnpG-98** Gesetz über die Anpassung von Dienst- und Versorgungsbezügen in Bund und Ländern 1998
+- **BBVAnpG-99** Gesetz über die Anpassung von Dienst- und Versorgungsbezügen in Bund und Ländern 1999
+- **BBVEG-79** Gesetz über die Erhöhung von Dienst- und Versorgungsbezügen in Bund und Ländern 1979
+- **BBVEG-80** Gesetz über die Erhöhung von Dienst- und Versorgungsbezügen in Bund und Ländern 1980
+- **BBVLG-1975** Gesetz über vermögenswirksame Leistungen für Beamte, Richter, Berufssoldaten und Soldaten auf Zeit
+- **BDBOSG** Gesetz über die Errichtung einer Bundesanstalt für den Digitalfunk der Behörden und Organisationen mit Sicherheitsaufgaben
+- **BDG** Bundesdisziplinargesetz
+- **BDNOG** Gesetz zur Neuordnung des Bundesdisziplinarrechts
+- **BDO** Bundesdisziplinarordnung
+- **BDRNOG** Gesetz zur Neuordnung des Bundesdisziplinarrechts
+- **BDSG-1990** Bundesdatenschutzgesetz
+- **BDSG-2018** Bundesdatenschutzgesetz
+- **Beamt-BesRÄndG-3** Drittes Gesetz zur Änderung beamtenrechtlicher und besoldungsrechtlicher Vorschriften
+- **Beamt-BesRÄndG-5** Fünftes Gesetz zur Änderung beamtenrechtlicher und besoldungsrechtlicher Vorschriften
+- **Beamt-BesRÄndG-7** Siebentes Gesetz zur Änderung beamtenrechtlicher und besoldungsrechtlicher Vorschriften (Dienstrechtlicher Teil des Familienlastenausgleichs)
+- **BeamtRÄndG-2** Zweites Gesetz zur Änderung beamtenrechtlicher Vorschriften
+- **BeamtRSaarEG** Gesetz zur Einführung von Beamtenrecht des Bundes im Saarland
+- **BeamtStG** Gesetz zur Regelung des Statusrechts der Beamtinnen und Beamten in den Ländern
+- **BeamtVG** Gesetz über die Versorgung der Beamten und Richter des Bundes
+- **BeamtVGÄndG** Gesetz zur Änderung des Beamtenversorgungsgesetzes und sonstiger dienst- und versorgungsrechtlicher Vorschriften
+- **BeamtVGÄndG-1993** Gesetz zur Änderung des Beamtenversorgungsgesetzes, des Soldatenversorgungsgesetzes sowie sonstiger versorgungsrechtlicher Vorschriften
+- **BeamtVRÄndG** Gesetz zur Änderung beamtenversorgungsrechtlicher Vorschriften
+- **BeArbThG** Gesetz über den Beruf der Ergotherapeutin und des Ergotherapeuten
+- **BEDBPStruktG** Gesetz zur Verbesserung der personellen Struktur beim Bundeseisenbahnvermögen und in den Postnachfolgeunternehmen
+- **BEEG** Gesetz zum Elterngeld und zur Elternzeit
+- **BefBezG** Gesetz über befriedete Bezirke für Verfassungsorgane des Bundes
+- **BefBezG-2008** Gesetz über befriedete Bezirke für Verfassungsorgane des Bundes
+- **BEG** Bundesgesetz zur Entschädigung für Opfer der nationalsozialistischen Verfolgung
+- **BEGÄndG-3** Drittes Gesetz zur Änderung des Bundesergänzungsgesetzes zur Entschädigung für Opfer der nationalsozialistischen Verfolgung
+- **BegleitG** Begleitgesetz zum Telekommunikationsgesetz
+- **BEGSchlG** Zweites Gesetz zur Änderung des Bundesentschädigungsgesetzes
+- **BEGTPG** Gesetz über die Bundesnetzagentur für Elektrizität, Gas, Telekommunikation, Post und Eisenbahnen
+- **BeherbStatG** Gesetz über die Statistik der Beherbergung im Reiseverkehr
+- **BeherbStatG-2003** Gesetz zur Neuordnung der Statistik über die Beherbergung im Reiseverkehr
+- **BEHG** Gesetz über einen nationalen Zertifikatehandel für Brennstoffemissionen
+- **BeitrEntlG** Gesetz zur Entlastung der Beiträge in der gesetzlichen Krankenversicherung
+- **BeitrEntlKrG** Gesetz zur Beitragsentlastung der gesetzlichen Krankenversicherung
+- **BeitrRückzG** Gesetz über die Rückzahlung der einbehaltenen Beiträge zur Krankenversicherung der Rentner
+- **BeitrSRV-BAÄndG** Gesetz zur Änderung der Beitragssätze in der gesetzlichen Rentenversicherung und bei der Bundesanstalt für Arbeit
+- **BekG** Gesetz über Bekanntmachungen
+- **BeratHiG** Gesetz über Rechtsberatung und Vertretung für Bürger mit geringem Einkommen
+- **BeratungsG** Gesetz zur Vermeidung und Bewältigung von Schwangerschaftskonflikten
+- **BerBiFG** Berufsbildungsförderungsgesetz
+- **BergArbWoFöG** Gesetz zur Förderung des Bergarbeiterwohnungsbaues im Kohlenbergbau
+- **BergArbWoFöGÄndG-4** Viertes Gesetz zur Änderung des Gesetzes zur Förderung des Bergarbeiterwohnungsbaues im Kohlenbergbau
+- **BergArbWoFöGÄndG-5** Fünftes Gesetz zur Änderung des Gesetzes zur Förderung des Bergarbeiterwohnungsbaues im Kohlenbergbau
+- **BergMSdlgG** Gesetz über Bergmannssiedlungen
+- **BergMSdlgG-2** Zweites Gesetz über Bergmannssiedlungen
+- **BergPG** Gesetz über Bergmannsprämien
+- **BergÜbkG** Gesetz zu dem Internationalen Übereinkommen von 1989 über Bergung
+- **Berlin-BonnG** Gesetz zur Umsetzung des Beschlusses des Deutschen Bundestages vom 20. Juni 1991 zur Vollendung der Einheit Deutschlands
+- **BerlinFG** Gesetz zur Förderung der Berliner Wirtschaft
+- **BernstSchG** Gesetz zum Schutz des Bernsteins
+- **BerRehaG** Gesetz über den Ausgleich beruflicher Benachteiligungen für Opfer politischer Verfolgung im Beitrittsgebiet
+- **BErzGG** Gesetz zum Erziehungsgeld und zur Elternzeit
+- **BesÄndG-4** Viertes Gesetz zur Änderung des Bundesbesoldungsgesetzes
+- **BesÄndG-6** Sechstes Gesetz zur Änderung besoldungsrechtlicher Vorschriften
+- **BesÄndG-7** Siebentes Gesetz zur Änderung des Bundesbesoldungsgesetzes
+- **BesatzRAufhG-1** Erstes Gesetz zur Aufhebung des Besatzungsrechts
+- **BesatzRAufhG-2** Zweites Gesetz zur Aufhebung des Besatzungsrechts
+- **BesatzRAufhG-3** Drittes Gesetz zur Aufhebung des Besatzungsrechts
+- **BesatzRAufhG-4** Viertes Gesetz zur Aufhebung des Besatzungsrechts
+- **BesatzRBerG** Gesetz zur Bereinigung des Besatzungsrechts
+- **BesatzSchG** Gesetz über die Abgeltung von Besatzungsschäden
+- **BeschFArbRG** Gesetz über arbeitsrechtliche Vorschriften zur Beschäftigungsförderung (Artikel 1 d. Beschäftigungsförderungsgesetzes 1985)
+- **BeschG** Gesetz über die Prüfung und Zulassung von Feuerwaffen, Böllern, Geräten, bei denen zum Antrieb Munition verwendet wird, sowie von Munition und sonstigen Waffen
+- **BeschNeuRG** Gesetz zur Neuregelung der geringfügigen Beschäftigungsverhältnisse
+- **BeschußGÄndG** Gesetz zur Änderung des Beschußgesetzes
+- **BesErhG-4** Viertes Gesetz über die Erhöhung von Dienst- und Versorgungsbezügen
+- **BesErhG-5** Fünftes Gesetz über die Erhöhung von Dienst- und Versorgungsbezügen
+- **BesNG-1** Erstes Gesetz zur Neuregelung des Besoldungsrechts
+- **BesNG-2** Zweites Gesetz zur Neuregelung des Besoldungsrechts
+- **BesRÄndG** Gesetz zur Änderung besoldungsrechtlicher Vorschriften
+- **BesRÄndG-3** Drittes Gesetz zur Änderung besoldungsrechtlicher Vorschriften
+- **BesRÄndG-4** Viertes Gesetz zur Änderung besoldungsrechtlicher Vorschriften
+- **BesRÄndG-5** Fünftes Gesetz zur Änderung besoldungsrechtlicher Vorschriften
+- **BesRNG-1980** Gesetz zur Änderung besoldungsrechtlicher und versorgungsrechtlicher Vorschriften 1980
+- **BesStruktG** Gesetz zur Modernisierung der Besoldungsstruktur
+- **BesÜG** Besoldungsüberleitungsgesetz
+- **BesVNG-1** Erstes Gesetz zur Vereinheitlichung und Neuregelung des Besoldungsrechts in Bund und Ländern
+- **BesVNG-2** Zweites Gesetz zur Vereinheitlichung und Neuregelung des Besoldungsrechts in Bund und Ländern
+- **BetrAVG** Gesetz zur Verbesserung der betrieblichen Altersversorgung
+- **BetrPrämDurchfG** Gesetz zur Durchführung der einheitlichen Betriebsprämie
+- **BetrUnfallÜbkG** Gesetz über die Internationalen Übereinkommen betreffend die Gleichbehandlung einheimischer und ausländischer Arbeitnehmer bei Entschädigung aus Anlaß von Betriebsunfällen sowie die Entschädigung aus Anlaß von Berufskrankheiten
+- **BetrVG** Betriebsverfassungsgesetz
+- **BetrVG-1952** Betriebsverfassungsgesetz 1952
+- **BetrVRG** Gesetz zur Reform des Betriebsverfassungsgesetzes
+- **BeurkG** Beurkundungsgesetz
+- **BeurkRÄndG** Gesetz zur Änderung und Ergänzung beurkundungsrechtlicher Vorschriften
+- **BevStatG** Gesetz über die Statistik der Bevölkerungsbewegung und die Fortschreibung des Bevölkerungsstandes
+- **BevStatG-2013** Gesetz über die Statistik der Bevölkerungsbewegung und die Fortschreibung des Bevölkerungsstandes
+- **BEVVG** Gesetz über die Eisenbahnverkehrsverwaltung des Bundes
+- **BewÄndG** Gesetz über die Anwendung und Änderung bewertungsrechtlicher Vorschriften
+- **BewÄndG-1971** Gesetz zur Änderung bewertungsrechtlicher und anderer steuerrechtlicher Vorschriften
+- **BewG** Bewertungsgesetz
+- **BewGÄndG** Gesetz zur Änderung des Bewertungsgesetzes
+- **BewiNotGVerlG** Gesetz zur Erstreckung und zur Verlängerung der Geltungsdauer des Bewirtschaftungsnotgesetzes, des Gesetzes zur Deckung der Kosten für den Umsatz ernährungswirtschaftlicher Waren und des Preisgesetzes
+- **BEZNG** Gesetz zur Zusammenführung und Neugliederung der Bundeseisenbahnen
+- **BfAG** Gesetz über die Errichtung der Bundesversicherungsanstalt für Angestellte
+- **BfAIPG** Gesetz über das Personal der Bundesagentur für Außenwirtschaft
+- **BFDG** Gesetz über den Bundesfreiwilligendienst
+- **BFHEntlG** Gesetz zur Entlastung des Bundesfinanzhofs
+- **BFinHBRuaG** Gesetz über Finanzhilfen des Bundes nach Artikel 104a Abs. 4 des Grundgesetzes an die Länder Bremen, Hamburg, Mecklenburg-Vorpommern, Niedersachsen sowie Schleswig-Holstein für Seehäfen
+- **BFinHSHuaG** Gesetz über Finanzhilfen des Bundes nach Artikel 104a Abs. 4 des Grundgesetzes an die Länder Schleswig-Holstein, Niedersachsen, Freie Hansestadt Bremen sowie Freie und Hansestadt Hamburg
+- **BfJG** Gesetz über die Errichtung des Bundesamts für Justiz
+- **BfkEG** Gesetz über die Errichtung eines Bundesamtes für die Sicherheit der nuklearen Entsorgung
+- **BfNatSchG** Gesetz über die Errichtung eines Bundesamtes für Naturschutz
+- **BfRG** Gesetz über die Errichtung eines Bundesinstitutes für Risikobewertung
+- **BFStrMG** Gesetz über die Erhebung von streckenbezogenen Gebühren für die Benutzung von Bundesautobahnen und Bundesstraßen
+- **BGA-NachfG** Gesetz über Nachfolgeeinrichtungen des Bundesgesundheitsamtes
+- **BGAG** Gesetz über die Errichtung eines Bundesgesundheitsamtes
+- **BGB** Bürgerliches Gesetzbuch
+- **BGBEG** Einführungsgesetz zum Bürgerlichen Gesetzbuche
+- **BGBuaÄndG-1998** Gesetz zur Änderung des Bürgerlichen Gesetzbuchs und des Arbeitsgerichtsgesetzes
+- **BGebG** Gesetz über Gebühren und Auslagen des Bundes
+- **BGeoRG** Gesetz über die geodätischen Referenzsysteme, -netze und geotopographischen Referenzdaten des Bundes
+- **BGG** Gesetz zur Gleichstellung von Menschen mit Behinderungen
+- **BGL-2002** Gesetz zur Bestimmung der Beiträge und Beitragszuschüsse in der Alterssicherung der Landwirte für 2002
+- **BGL-2003** Gesetz zur Bestimmung der Beiträge und Beitragszuschüsse in der Alterssicherung der Landwirte für 2003
+- **BGL-2004** Gesetz zur Bestimmung der Beiträge und Beitragszuschüsse in der Alterssicherung der Landwirte für 2004
+- **BGL-2007** Gesetz zur Bestimmung der Beiträge und Beitragszuschüsse in der Alterssicherung der Landwirte für 2007
+- **BGleiG** Gesetz zur Gleichstellung von Frauen und Männern in der Bundesverwaltung und in den Gerichten des Bundes
+- **BGleiG-2015** Gesetz für die Gleichstellung von Frauen und Männern in der Bundesverwaltung und in den Unternehmen und Gerichten des Bundes
+- **BGremBG** Gesetz über die Berufung und Entsendung von Frauen und Männern in Gremien im Einflußbereich des Bundes
+- **BGremBG-2015** Gesetz über die Mitwirkung des Bundes an der Besetzung von Gremien
+- **BGruVerkOlympG** Gesetz über den Verkauf von bundeseigenem Gelände in München zur Errichtung frei finanzierter Wohnungen, die während der Olympischen Spiele 1972 als Olympisches Dorf der Männer benutzt werden sollen
+- **BGRWG** Gesetz zur Weiterentwicklung des Behindertengleichstellungsrechts
+- **BGSG** Gesetz über den Bundesgrenzschutz
+- **BGSG-1994** Gesetz über die Bundespolizei
+- **BGSNeuRegG** Gesetz zur Neuregelung der Vorschriften über den Bundesgrenzschutz
+- **BGSPersG** Gesetz über die Personalstruktur des Bundesgrenzschutzes
+- **BGSVVermG** Gesetz zur Regelung von Vermögensfragen der Sozialversicherung im Beitrittsgebiet
+- **BGVPLTErG** Gesetz zur Errichtung der Berufsgenossenschaft Verkehrswirtschaft Post-Logistik Telekommunikation
+- **BHO** Bundeshaushaltsordnung
+- **BierStG** Vorläufiges Biergesetz
+- **BierStG-1993** Biersteuergesetz 1993
+- **BierStG-2009** Biersteuergesetz
+- **BierStGemBY-BAG** Gesetz über den Eintritt der Freistaaten Bayern und Baden in die Biersteuergemeinschaft
+- **BierStGemWÜG** Gesetz über den Eintritt des Freistaats Württemberg in die Biersteuergemeinschaft
+- **BImAG** Gesetz über die Bundesanstalt für Immobilienaufgaben
+- **BImSchG** Gesetz zum Schutz vor schädlichen Umwelteinwirkungen durch Luftverunreinigungen, Geräusche, Erschütterungen und ähnliche Vorgänge
+- **BinSchAbkCSKG** Gesetz zu dem Abkommen vom 26. Januar 1988 zwischen der Regierung der Bundesrepublik Deutschland und der Regierung der Tschechoslowakischen Sozialistischen Republik über den Binnenschiffsverkehr
+- **BinSchAbkGEORG** Gesetz zu dem Abkommen vom 25. Juni 1993 zwischen der Regierung der Bundesrepublik Deutschland und der Regierung der Republik Georgien über die Binnenschiffahrt
+- **BinSchAbkHUNG** Gesetz zu dem Abkommen vom 15. Januar 1988 zwischen der Regierung der Bundesrepublik Deutschland und der Regierung der Ungarischen Volksrepublik über die Binnenschiffahrt
+- **BinSchAbkPOLG** Gesetz zu dem Abkommen vom 8. November 1991 zwischen der Regierung der Bundesrepublik Deutschland und der Regierung der Republik Polen über die Binnenschiffahrt
+- **BinSchAbkROMG** Gesetz zu dem Abkommen vom 22. Oktober 1991 zwischen der Regierung der Bundesrepublik Deutschland und der Regierung von Rumänien über die Schiffahrt auf den Binnenwasserstraßen
+- **BinSchEÜbkG** Gesetz zu dem Übereinkommen vom 15. Februar 1966 über die Eichung von Binnenschiffen
+- **BinSchFondsG** Gesetz über die Errichtung des Deutschen Binnenschifffahrtsfonds
+- **BinSchG** Gesetz über die Aufgaben des Bundes auf dem Gebiet der Binnenschiffahrt
+- **BinSchGerG** Gesetz über das gerichtliche Verfahren in Binnenschiffahrtssachen
+- **BinSchPRG** Gesetz betreffend die privatrechtlichen Verhältnisse der Binnenschiffahrt
+- **BinSchStatG** Gesetz über die Statistik der Binnenschiffahrt
+- **BinSchÜbkG** Gesetz zu dem Übereinkommen vom 15. März 1960 zur Vereinheitlichung einzelner Regeln über den Zusammenstoß von Binnenschiffen sowie zur Änderung des Binnenschiffahrtsgesetzes und des Flößereigesetzes
+- **BinSchUkrAbkG** Gesetz zu dem Abkommen vom 14. Juli 1992 zwischen der Regierung der Bundesrepublik Deutschland und der Regierung der Ukraine über die Binnenschiffahrt
+- **BinSchVollstrSchG** Gesetz über Vollstreckungsschutz für die Binnenschiffahrt
+- **BinWaStrBGRAbkG** Gesetz zu dem Abkommen vom 4. Juli 1989 zwischen der Regierung der Bundesrepublik Deutschland und der Regierung der Volksrepublik Bulgarien über die Schiffahrt auf den Binnenwasserstraßen
+- **BismStiftG** Gesetz über die Errichtung einer Otto-von-Bismarck-Stiftung
+- **BJagdG** Bundesjagdgesetz
+- **BJagdGÄndG** Gesetz zur Änderung des Bundesjagdgesetzes
+- **BJagdGÄndG-2** Zweites Gesetz zur Änderung des Bundesjagdgesetzes
+- **BJAPersVAzG** Gesetz über Amtszeiten von Personalvertretungen und Jugend- und Auszubildendenvertretungen im Bundesdienst (Artikel 7 des Gesetzes zur Neufassung des Bundesumzugskostengesetzes, zur Änderung anderer dienstrechtlicher Vorschriften, zur Regelung personalvertretungsrechtlicher Amtszeiten sowie zur Verbesserung der personellen Struktur in der Bundeszollverwaltung)
+- **BKAG** Gesetz über die Einrichtung eines Bundeskriminalpolizeiamtes (Bundeskriminalamtes)
+- **BKAG-1997** Gesetz über das Bundeskriminalamt und die Zusammenarbeit des Bundes und der Länder in kriminalpolizeilichen Angelegenheiten (Artikel 1 des Gesetzes über das Bundeskriminalamt und die Zusammenarbeit des Bundes und der Länder in kriminalpolizeilichen Angelegenheiten)
+- **BKAG-2018** Gesetz über das Bundeskriminalamt und die Zusammenarbeit des Bundes und der Länder in kriminalpolizeilichen Angelegenheiten
+- **BKATerrAbwG** Gesetz zur Abwehr von Gefahren des internationalen Terrorismus durch das Bundeskriminalamt
+- **BKGG** Bundeskindergeldgesetz
+- **BKGG-1996** Bundeskindergeldgesetz
+- **BKleingÄndG** Gesetz zur Änderung des Bundeskleingartengesetzes
+- **BKleingG** Bundeskleingartengesetz
+- **BKnEG** Gesetz zur Errichtung der Bundesknappschaft
+- **BKnStabG** Gesetz zur Stabilisierung des Mitgliederkreises von Bundesknappschaft und See-Krankenkasse
+- **BKrFQG** Gesetz über die Grundqualifikation und Weiterbildung der Fahrer bestimmter Kraftfahrzeuge für den Güterkraft- oder Personenverkehr
+- **BKRG** Bundeskrebsregisterdatengesetz
+- **BLEG** Gesetz über die Errichtung einer Bundesanstalt für Landwirtschaft und Ernährung
+- **BLEGuÄndG** Gesetz über die Errichtung einer Bundesanstalt für Landwirtschaft und Ernährung und zur Änderung von Vorschriften auf den Gebieten der Land- und Ernährungswirtschaft
+- **BleiG** Gesetz betreffend den Verkehr mit blei- und zinkhaltigen Gegenständen
+- **BLG** Bundesleistungsgesetz
+- **BLG-2000** Gesetz zur Bestimmung der Beträge und Beitragszuschüsse in der Alterssicherung der Landwirte für 2000
+- **BliwaG** Blindenwarenvertriebsgesetz
+- **BluterG** Gesetz zur Vereinbarung von Entgelten für die Behandlung von Blutern im Jahr 2003
+- **BMG** Bundesmeldegesetz
+- **BMinG** Gesetz über die Rechtsverhältnisse der Mitglieder der Bundesregierung
+- **BMJMaßgabenBerG** Gesetz über die Nichtanwendung von Maßgaben des Einigungsvertrages im Zuständigkeitsbereich des Bundesministeriums der Justiz
+- **BNatSchG** Gesetz über Naturschutz und Landschaftspflege
+- **BNatSchG-2002** Gesetz über Naturschutz und Landschaftspflege
+- **BNatSchG-2009** Gesetz über Naturschutz und Landschaftspflege
+- **BNatSchGÄndG-2** Zweites Gesetz zur Änderung des Bundesnaturschutzgesetzes
+- **BNatSchGÄndG-3** Drittes Gesetz zur Änderung des Bundesnaturschutzgesetzes
+- **BNDG** Gesetz über den Bundesnachrichtendienst
+- **BNichtrSchG** Gesetz zur Einführung eines Rauchverbotes in Einrichtungen des Bundes und öffentlichen Verkehrsmitteln
+- **BNotO** Bundesnotarordnung
+- **BNotOuaÄndG-3** Drittes Gesetz zur Änderung der Bundesnotarordnung und anderer Gesetze
+- **BodSchätzG** Gesetz über die Schätzung des Kulturbodens
+- **BodSchätzG-2008** Gesetz zur Schätzung des landwirtschaftlichen Kulturbodens
+- **BodSchVereinhG** Gesetz zur Vereinheitlichung der Rechtsverhältnisse bei Bodenschätzen
+- **BörsG** Börsengesetz
+- **BörsG-2002** Börsengesetz
+- **BörsG-2007** Börsengesetz
+- **BoSoG** Gesetz über die Sonderung unvermessener und überbauter Grundstücke nach der Karte
+- **BPersVG** Bundespersonalvertretungsgesetz
+- **BPersVGÄndG** Gesetz zur Änderung des Bundespersonalvertretungsgesetzes
+- **BPersVGAnwG** Gesetz zur sinngemäßen Anwendung des Bundespersonalvertretungsgesetzes (BPersVG)
+- **BPolBG** Bundespolizeibeamtengesetz
+- **BPolBGÄndG** Gesetz zur Änderung des Bundespolizeibeamtengesetzes
+- **BPräsRuhebezG** Gesetz über die Ruhebezüge des Bundespräsidenten
+- **BPräsTHHStiftG** Gesetz über die Errichtung einer Stiftung Bundespräsident-Theodor-Heuss-Haus
+- **BPräsWahlG** Gesetz über die Wahl des Bundespräsidenten durch die Bundesversammlung
+- **BQFG** Gesetz über die Feststellung der Gleichwertigkeit von Berufsqualifikationen
+- **BRAGebO** Bundesgebührenordnung für Rechtsanwälte
+- **BRAGebOÄndG-5** Fünftes Gesetz zur Änderung der Bundesgebührenordnung für Rechtsanwälte
+- **BranntwMonG** Gesetz über das Branntweinmonopol
+- **BranntwMonVwG** Gesetz über die Errichtung der Bundesmonopolverwaltung für Branntwein
+- **BRAO** Bundesrechtsanwaltsordnung
+- **BRAO-BRAGebOÄndG** Gesetz zur Änderung der Bundesrechtsanwaltsordnung, der Bundesgebührenordnung für Rechtsanwälte und anderer Vorschriften
+- **BRAO-PatAnwOuaÄndG** Gesetz zur Änderung der Bundesrechtsanwaltsordnung, der Patentanwaltsordnung und anderer Gesetze
+- **BrennRVeraAussG** Gesetz zur Aussetzung der Brennrechtsveranlagung 1992/93
+- **BrennstStatG** Gesetz über die statistische Erfassung der in den Geltungsbereich dieses Gesetzes verbrachten festen Brennstoffe
+- **BrexitÜG** Gesetz für den Übergangszeitraum nach dem Austritt des Vereinigten Königreichs Großbritannien und Nordirland aus der Europäischen Union
+- **BRHG-1985** Gesetz über den Bundesrechnungshof
+- **BRKG** Gesetz über die Reisekostenvergütung für die Bundesbeamten, Richter im Bundesdienst und Soldaten
+- **BRKG-2005** Bundesreisekostengesetz
+- **BRRG** Rahmengesetz zur Vereinheitlichung des Beamtenrechts
+- **BRSaarEG** Gesetz zur Einführung von Bundesrecht im Saarland
+- **BRSAbschlG** Gesetz über den Abschluß der Sammlung des Bundesrechts
+- **BRSG** Gesetz über die Sammlung des Bundesrechts
+- **BRüG** Bundesgesetz zur Regelung der rückerstattungsrechtlichen Geldverbindlichkeiten des Deutschen Reichs und gleichgestellter Rechtsträger
+- **BRÜGSaarG** Bundesgesetz zur Einführung des Bundesgesetzes zur Regelung der rückerstattungsrechtlichen Geldverbindlichkeiten des Deutschen Reichs und gleichgestellter Rechtsträger (Bundesrückerstattungsgesetz - BRüG) im Saarland
+- **BSchG** Gesetz zum Schutz der Beschäftigten vor sexueller Belästigung am Arbeitsplatz
+- **BSchuWG** Gesetz zur Regelung des Schuldenwesens des Bundes
+- **BSeeSchG** Gesetz über die Aufgaben des Bundes auf dem Gebiet der Seeschiffahrt
+- **BSeuchG** Gesetz zur Verhütung und Bekämpfung übertragbarer Krankheiten beim Menschen
+- **BSeuchGÄndG-2** Zweites Gesetz zur Änderung des Bundes-Seuchengesetzes
+- **BSG-1999** Gesetz zur Bestimmung der Beitragssätze in der gesetzlichen Rentenversicherung für 1999 und zur Bestimmung weiterer Rechengrößen der Sozialversicherung für 1999
+- **BSG-2000** Gesetz zur Bestimmung der Beitragssätze und zur Bestimmung der Umrechnungsfaktoren für den Versorgungsausgleich in der gesetzlichen Rentenversicherung für 2000
+- **BSG-2002** Gesetz zur Bestimmung der Beitragssätze, der Beitragszahlung des Bundes für Kindererziehungszeiten und zur Bestimmung der Umrechnungsfaktoren für den Versorgungsausgleich in der gesetzlichen Rentenversicherung für 2002
+- **BSG-2003** Gesetz zur Bestimmung der Beitragssätze in der gesetzlichen Rentenversicherung und der Beitragszahlung des Bundes für Kindererziehungszeiten für das Jahr 2003
+- **BSG-2004** Gesetz zur Bestimmung der Beitragssätze in der gesetzlichen Rentenversicherung und der Beitragszahlung des Bundes für Kindererziehungszeiten für das Jahr 2004
+- **BSG-2007** Gesetz zur Bestimmung der Beitragssätze in der gesetzlichen Rentenversicherung für das Jahr 2007
+- **BSG-2013** Gesetz zur Festsetzung der Beitragssätze in der gesetzlichen Rentenversicherung für das Jahr 2013
+- **BSG-2014** Gesetz zur Festsetzung der Beitragssätze in der gesetzlichen Rentenversicherung für das Jahr 2014
+- **BSHG** Bundessozialhilfegesetz
+- **BSHGÄndG-2** Zweites Gesetz zur Änderung des Bundessozialhilfegesetzes
+- **BSHGÄndG-5** Fünftes Gesetz zur Änderung des Bundessozialhilfegesetzes
+- **BSIG** Gesetz über die Errichtung des Bundesamtes für Sicherheit in der Informationstechnik
+- **BSIG-2009** Gesetz über das Bundesamt für Sicherheit in der Informationstechnik
+- **BStatG-1987** Gesetz über die Statistik für Bundeszwecke
+- **BSWAG** Gesetz über den Ausbau der Schienenwege des Bundes
+- **BSZG** Bundessonderzahlungsgesetz
+- **BT14WStatAussG** Gesetz zur Aussetzung der Vorschriften über die repräsentative Wahlstatistik für die Wahl zum 14. Deutschen Bundestag
+- **BtÄndG** Gesetz zur Änderung des Betreuungsrechts sowie weiterer Vorschriften
+- **BTÄO** Bundes-Tierärzteordnung
+- **BtBG** Gesetz über die Wahrnehmung behördlicher Aufgaben bei der Betreuung Volljähriger
+- **BtG** Gesetz zur Reform des Rechts der Vormundschaft und Pflegschaft für Volljährige
+- **BTHG** Gesetz zur Stärkung der Teilhabe und Selbstbestimmung von Menschen mit Behinderungen
+- **BtMG-1981** Gesetz über den Verkehr mit Betäubungsmitteln
+- **BTWStatAussG** Gesetz zur Aussetzung der Vorschriften über die repräsentative Wahlstatistik für die Wahl zum 13. Deutschen Bundestag
+- **BuchPrG** Gesetz über die Preisbindung für Bücher
+- **BürgPoRPaktGG** Gesetz zu dem Internationalen Pakt vom 19. Dezember 1966 über bürgerliche und politische Rechte
+- **BUKG-1990** Gesetz über die Umzugskostenvergütung für die Bundesbeamten, Richter im Bundesdienst und Soldaten
+- **BUrlG** Mindesturlaubsgesetz für Arbeitnehmer
+- **BVAG** Gesetz über die Errichtung des Bundesversicherungsamts, die Aufsicht über die Sozialversicherungsträger und die Regelung von Verwaltungszuständigkeiten in der Sozialversicherung und der betrieblichen Altersfürsorge
+- **BVerfGAmtsGehG** Gesetz über das Amtsgehalt der Mitglieder des Bundesverfassungsgerichts
+- **BVerfGG** Gesetz über das Bundesverfassungsgericht
+- **BVerfGGÄndG-5** Fünftes Gesetz zur Änderung des Gesetzes über das Bundesverfassungsgericht
+- **BVerfGGuaÄndG** Gesetz zur Änderung des Bundesverfassungsgerichtsgesetzes und des Gesetzes über das Amtsgehalt der Mitglieder des Bundesverfassungsgerichts
+- **BVerfSchG** Gesetz über die Zusammenarbeit des Bundes und der Länder in Angelegenheiten des Verfassungsschutzes und über das Bundesamt für Verfassungsschutz
+- **BVersTG** Gesetz über die interne Teilung beamtenversorgungsrechtlicher Ansprüche von Bundesbeamtinnen und Bundesbeamten im Versorgungsausgleich
+- **BVerwGVerlG** Gesetz zur Verlagerung des Sitzes des Bundesverwaltungsgerichts von Berlin nach Leipzig
+- **BVFG** Gesetz über die Angelegenheiten der Vertriebenen und Flüchtlinge
+- **BVFGÄndG-2** Zweites Gesetz zur Änderung und Ergänzung des Bundesvertriebenengesetzes
+- **BVG** Gesetz über die Versorgung der Opfer des Krieges
+- **BVGSaarEG** Gesetz zur Einführung des Bundesversorgungsgesetzes im Saarland
+- **BVLG** Gesetz über die Errichtung eines Bundesamtes für Verbraucherschutz und Lebensmittelsicherheit
+- **BVormVG** Gesetz über die Vergütung von Berufsvormündern
+- **BVSAuflG** Gesetz über die Auflösung des Bundesverbandes für den Selbstschutz
+- **BVwAG** Gesetz über die Errichtung des Bundesverwaltungsamtes
+- **BWahlG** Bundeswahlgesetz
+- **BWahlGÄndG-13** Dreizehntes Gesetz zur Änderung des Bundeswahlgesetzes
+- **BWahlGÄndG10-PartGÄndG** Zehntes Gesetz zur Änderung des Bundeswahlgesetzes sowie zur Änderung des Parteiengesetzes
+- **BWaldG** Gesetz zur Erhaltung des Waldes und zur Förderung der Forstwirtschaft
+- **BwBAnpG** Gesetz zur Anpassung der Zahl von Beamten im Geschäftsbereich des Bundesministers der Verteidigung an die Verringerung der Streitkräfte
+- **BwBeamtAusglG** Gesetz zur Ausgliederung von Beamtinnen und Beamten der Bundeswehr
+- **BWKAuslG** Bundesgesetz zur Wiedergutmachung nationalsozialistischen Unrechts in der Kriegsopferversorgung für Berechtigte im Ausland
+- **BWKAuslGÄndG** Gesetz zur Änderung und Ergänzung des Gesetzes zur Wiedergutmachung nationalsozialistischen Unrechts in der Kriegsopferversorgung für Berechtigte im Ausland
+- **BwKoopG** Kooperationsgesetz der Bundeswehr
+- **BWöDAuslG** Gesetz zur Regelung der Wiedergutmachung nationalsozialistischen Unrechts für die im Ausland lebenden Angehörigen des öffentlichen Dienstes
+- **BWöDG** Gesetz zur Regelung der Wiedergutmachung nationalsozialistischen Unrechts für Angehörige des öffentlichen Dienstes
+- **BWöDGÄndG-2** Zweites Gesetz zur Änderung des Gesetzes zur Regelung der Wiedergutmachung nationalsozialistischen Unrechts für Angehörige des öffentlichen Dienstes
+- **BWöDGÄndG-3** Drittes Gesetz zur Änderung des Gesetzes zur Regelung der Wiedergutmachung nationalsozialistischen Unrechts für Angehörige des öffentlichen Dienstes
+- **BWöDGÄndG-6** Sechstes Gesetz zur Änderung des Gesetzes zur Regelung der Wiedergutmachung nationalsozialistischen Unrechts für Angehörige des öffentlichen Dienstes
+- **BWöDGÄndG-7** Siebentes Gesetz zur Änderung des Gesetzes zur Regelung der Wiedergutmachung nationalsozialistischen Unrechts für Angehörige des öffentlichen Dienstes
+- **BWpVerwG** Gesetz zur Neuordnung des Schuldbuchrechts des Bundes und der Rechtsgrundlagen der Bundesschuldenverwaltung
+- **BWpVerwPG** Gesetz über das Personal der Bundeswertpapierverwaltung
+- **BWRBerErmG** Gesetz über die Ermächtigung des Landes Baden-Württemberg zur Rechtsbereinigung
+- **BzBlG** Gesetz zur Verminderung von Luftverunreinigungen durch Bleiverbindungen in Ottokraftstoffen für Kraftfahrzeugmotore
+- **BZollVPSVerbG** Gesetz zur Verbesserung der personellen Struktur in der Bundeszollverwaltung (Artikel 9 des Gesetzes zur Neufassung des Bundesumzugskostengesetzes, zur Änderung anderer dienstrechtlicher Vorschriften, zur Regelung personalvertretungsrechtlicher Amtszeiten sowie zur Verbesserung der personellen Struktur in der Bundeszollverwaltung)
+- **BZRÄndG-2** Zweites Gesetz zur Änderung des Bundeszentralregistergesetzes
+- **BZRG** Gesetz über das Zentralregister und das Erziehungsregister
+- **BZSAuflG** Gesetz zur Auflösung des Bundesamtes für Zivilschutz
+- **CCDSekrSitzAbkG** Gesetz zu dem Abkommen vom 18. August 1998 zwischen der Regierung der Bundesrepublik Deutschland, den Vereinten Nationen und dem Sekretariat des Übereinkommens der Vereinten Nationen zur Bekämpfung der Wüstenbildung über den Sitz des Ständigen Sekretariats des Übereinkommens
+- **ChemG** Gesetz zum Schutz vor gefährlichen Stoffen
+- **ChemWaffÜbkG** Gesetz zu dem Übereinkommen vom 13. Januar 1993 über das Verbot der Entwicklung, Herstellung, Lagerung und des Einsatzes chemischer Waffen und über die Vernichtung solcher Waffen
+- **CLNIG** Gesetz zu dem Straßburger Übereinkommen vom 4. November 1988 über die Beschränkung der Haftung in der Binnenschiffahrt (CLNI)
+- **CMRG** Gesetz zu dem Übereinkommen vom 19. Mai 1956 über den Beförderungsvertrag im internationalen Straßengüterverkehr (CMR)
+- **ComKrimÜbkG** Gesetz zu dem Übereinkommen des Europarats vom 23. November 2001 über Computerkriminalität
+- **ContStifG** Gesetz über die Conterganstiftung für behinderte Menschen
+- **COTIFÄndProtG** Gesetz zu dem Protokoll vom 3. Juni 1999 betreffend die Änderung des Übereinkommens vom 9. Mai 1980 über den internationalen Eisenbahnverkehr (COTIF)
+- **CSCG** Gesetz zu dem Übereinkommen vom 2. Dezember 1972 über sichere Container
+- **CsgG** Gesetz zur Bevorrechtigung des Carsharing
+- **CWSSRechtsG** Gesetz zur Verleihung der Rechtsfähigkeit an das Gemeinsame Wattenmeersekretariat - Common Wadden Sea Secretariat (CWSS)
+- **CWÜAG** Ausführungsgesetz zu dem Übereinkommen vom 13. Januar 1993 über das Verbot der Entwicklung, Herstellung, Lagerung und des Einsatzes chemischer Waffen und über die Vernichtung solcher Waffen
+- **DasselFlG** Gesetz zur Bekämpfung der Dasselfliege
+- **DAVG-2** Zweites Gesetz zur Verbesserung der Registrierung und des Datenaustausches zu aufenthalts- und asylrechtlichen Zwecken
+- **DBAAbkÄndProtBELG** Gesetz zu dem Änderungsprotokoll vom 21. Januar 2010 zum Abkommen vom 11. April 1967 zwischen der Bundesrepublik Deutschland und dem Königreich Belgien zur Vermeidung der Doppelbesteuerungen und zur Regelung verschiedener anderer Fragen auf dem Gebiete der Steuern vom Einkommen und vom Vermögen einschließlich der Gewerbesteuer und der Grundsteuern sowie des dazugehörigen Schlussprotokolls in der Fassung des Zusatzabkommens vom 5. November 2002
+- **DBAAbkBGRG** Gesetz zum Abkommen vom 25. Januar 2010 zwischen der Bundesrepublik Deutschland und der Republik Bulgarien zur Vermeidung der Doppelbesteuerung und der Steuerverkürzung auf dem Gebiet der Steuern vom Einkommen und vom Vermögen
+- **DBAAbkGBRG** Gesetz zu dem Abkommen vom 30. März 2010 zwischen der Bundesrepublik Deutschland und dem Vereinigten Königreich Großbritannien und Nordirland zur Vermeidung der Doppelbesteuerung und zur Verhinderung der Steuerverkürzung auf dem Gebiet der Steuern vom Einkommen und vom Vermögen
+- **DBAAbkMYSG** Gesetz zu dem Abkommen vom 23. Februar 2010 zwischen der Bundesrepublik Deutschland und Malaysia zur Vermeidung der Doppelbesteuerung und zur Verhinderung der Steuerverkürzung auf dem Gebiet der Steuern vom Einkommen
+- **DBAAbkSYRG** Gesetz zu dem Abkommen vom 17. Februar 2010 zwischen der Bundesrepublik Deutschland und der Arabischen Republik Syrien zur Vermeidung der Doppelbesteuerung und Verhinderung der Steuerverkürzung auf dem Gebiet der Steuern vom Einkommen
+- **DBAÄndProtG-IND** Gesetz zu dem Protokoll vom 28. Juni 1984 zur Änderung des am 18. März 1959 in Neu-Delhi unterzeichneten Abkommens zwischen der Regierung der Bundesrepublik Deutschland und der Regierung der Republik Indien zur Vermeidung der Doppelbesteuerung des Einkommens
+- **DBAÄndProtG-NOR** Gesetz zu dem Protokoll vom 24. Juni 2013 zur Änderung des Abkommens vom 4. Oktober 1991 zwischen der Bundesrepublik Deutschland und dem Königreich Norwegen zur Vermeidung der Doppelbesteuerung und über gegenseitige Amtshilfe auf dem Gebiet der Steuern vom Einkommen und vom Vermögen sowie des dazugehörigen Protokolls
+- **DBAAREG** Gesetz zu dem Abkommen vom 1. Juli 2010 zwischen der Bundesrepublik Deutschland und den Vereinigten Arabischen Emiraten zur Vermeidung der Doppelbesteuerung und der Steuerverkürzung auf dem Gebiet der Steuern vom Einkommen
+- **DBAbkG-ARM** Gesetz zu dem Abkommen vom 29. Juni 2016 zwischen der Bundesrepublik Deutschland und der Republik Armenien zur Vermeidung der Doppelbesteuerung und zur Verhinderung der Steuerverkürzung auf dem Gebiet der Steuern vom Einkommen und vom Vermögen
+- **DBAbkG-ISR-2015** Gesetz zu dem Abkommen vom 21. August 2014 zwischen der Bundesrepublik Deutschland und dem Staat Israel zur Vermeidung der Doppelbesteuerung und der Steuerverkürzung auf dem Gebiet der Steuern vom Einkommen und vom Vermögen
+- **DBAbkG-Jersey-2015** Gesetz zu dem Abkommen vom 7. Mai 2015 zwischen der Bundesrepublik Deutschland und der Regierung von Jersey über die Zusammenarbeit in Steuersachen und die Vermeidung der Doppelbesteuerung bei bestimmten Einkünften
+- **DBAbkG-TUR** Gesetz zu dem Abkommen vom 19. September 2011 zwischen der Bundesrepublik Deutschland und der Republik Türkei zur Vermeidung der Doppelbesteuerung und der Steuerverkürzung auf dem Gebiet der Steuern vom Einkommen
+- **DBACHE1971Prot1978G** Gesetz zum Protokoll vom 30. November 1978 zu dem Abkommen vom 11. August 1971 zwischen der Bundesrepublik Deutschland und der Schweizerischen Eidgenossenschaft zur Vermeidung der Doppelbesteuerung auf dem Gebiete der Steuern vom Einkommen und vom Vermögen
+- **DBACHE1971Prot1989G** Gesetz zu dem Protokoll vom 17. Oktober 1989 zu dem Abkommen vom 11. August 1971 zwischen der Bundesrepublik Deutschland und der Schweizerischen Eidgenossenschaft zur Vermeidung der Doppelbesteuerung auf dem Gebiete der Steuern vom Einkommen und vom Vermögen in der Fassung des Protokolls vom 30. November 1978
+- **DBACHE1971Prot1992G** Gesetz zu dem Protokoll vom 21. Dezember 1992 zu dem Abkommen vom 11. August 1971 zwischen der Bundesrepublik Deutschland und der Schweizerischen Eidgenossenschaft zur Vermeidung der Doppelbesteuerung auf dem Gebiete der Steuern vom Einkommen und vom Vermögen
+- **DBAESTG** Gesetz zu dem Abkommen vom 29. November 1996 zwischen der Bundesrepublik Deutschland und der Republik Estland zur Vermeidung der Doppelbesteuerung auf dem Gebiet der Steuern vom Einkommen und vom Vermögen
+- **DBAG-BOL** Gesetz zu dem Abkommen vom 30. September 1992 zwischen der Bundesrepublik Deutschland und der Republik Bolivien zur Vermeidung der Doppelbesteuerung auf dem Gebiet der Steuern vom Einkommen und vom Vermögen
+- **DBAG-CHN** Gesetz zu dem Abkommen vom 10. Juni 1985 zwischen der Bundesrepublik Deutschland und der Volksrepublik China zur Vermeidung der Doppelbesteuerung auf dem Gebiet der Steuern vom Einkommen und vom Vermögen
+- **DBAG-FRA-2006** Gesetz zu dem Abkommen vom 12. Oktober 2006 zwischen der Bundesrepublik Deutschland und der Französischen Republik zur Vermeidung der Doppelbesteuerung der Nachlässe, Erbschaften und Schenkungen
+- **DBAG-KAZ** Gesetz zu dem Abkommen vom 26. November 1997 zwischen der Bundesrepublik Deutschland und der Republik Kasachstan zur Vermeidung der Doppelbesteuerung auf dem Gebiet der Steuern vom Einkommen und vom Vermögen
+- **DBAG-LTU** Gesetz zu dem Abkommen vom 22. Juli 1997 zwischen der Bundesrepublik Deutschland und der Republik Litauen zur Vermeidung der Doppelbesteuerung auf dem Gebiet der Steuern vom Einkommen und vom Vermögen
+- **DBAG-MAN** Gesetz zu dem Abkommen vom 2. März 2009 zwischen der Regierung der Bundesrepublik Deutschland und der Regierung der Insel Man zur Vermeidung der Doppelbesteuerung von im internationalen Verkehr tätigen Schifffahrtsunternehmen
+- **DBAG-SAU** Gesetz zu dem Abkommen vom 8. November 2007 zwischen der Bundesrepublik Deutschland und dem Königreich Saudi-Arabien zur Vermeidung der Doppelbesteuerung auf dem Gebiet der Steuern vom Einkommen und vom Vermögen von Luftfahrtunternehmen und der Steuern von den Vergütungen ihrer Arbeitnehmer
+- **DBAG-USA-1980** Gesetz zu dem Abkommen vom 3. Dezember 1980 zwischen der Bundesrepublik Deutschland und den Vereinigten Staaten von Amerika zur Vermeidung der Doppelbesteuerung auf dem Gebiet der Nachlaß-, Erbschaft- und Schenkungsteuern
+- **DBALETG** Gesetz zu dem Abkommen vom 21. Februar 1997 zwischen der Bundesrepublik Deutschland und der Republik Lettland zur Vermeidung der Doppelbesteuerung auf dem Gebiet der Steuern vom Einkommen und vom Vermögen
+- **DBAMLTÄndProtG** Gesetz zu dem Protokoll vom 17. Juni 2010 zur Änderung des Abkommens vom 8. März 2001 zwischen der Bundesrepublik Deutschland und Malta zur Vermeidung der Doppelbesteuerung auf dem Gebiet der Steuern vom Einkommen und vom Vermögen
+- **DBAMUSG** Gesetz zu dem Abkommen vom 7. Oktober 2011 zwischen der Bundesrepublik Deutschland und der Republik Mauritius zur Vermeidung der Doppelbesteuerung und der Steuerverkürzung auf dem Gebiet der Steuern vom Einkommen
+- **DBANAMG** Gesetz zu dem Abkommen vom 2. Dezember 1993 zwischen der Bundesrepublik Deutschland und der Republik Namibia zur Vermeidung der Doppelbesteuerung auf dem Gebiet der Steuern vom Einkommen und vom Vermögen
+- **DBAPAKG** Gesetz zu dem Abkommen vom 14. Juli 1994 zwischen der Bundesrepublik Deutschland und der Islamischen Republik Pakistan zur Vermeidung der Doppelbesteuerung auf dem Gebiet der Steuern vom Einkommen
+- **DBAProtVerArabEmG** Gesetz zu dem Protokoll vom 4. Juli 2006 zur Verlängerung des Abkommens vom 9. April 1995 zwischen der Bundesrepublik Deutschland und den Vereinigten Arabischen Emiraten zur Vermeidung der Doppelbesteuerung auf dem Gebiet der Steuern vom Einkommen und vom Vermögen und zur Belebung der wirtschaftlichen Beziehungen
+- **DBARevProtG-FRA** Gesetz zu dem Revisionsprotokoll vom 9. Juni 1969 zu dem am 21. Juli 1959 in Paris unterzeichneten Abkommen zwischen der Bundesrepublik Deutschland und der Französischen Republik zur Vermeidung der Doppelbesteuerungen und über gegenseitige Amts- und Rechtshilfe auf dem Gebiete der Steuern vom Einkommen und vom Vermögen sowie der Gewerbesteuern und der Grundsteuern
+- **DBARUSÄndProtG** Gesetz zu dem Protokoll vom 15. Oktober 2007 zur Änderung des Abkommens zwischen der Bundesrepublik Deutschland und der Russischen Föderation zur Vermeidung der Doppelbesteuerung auf dem Gebiet der Steuern vom Einkommen und vom Vermögen vom 29. Mai 1996 und des Protokolls hierzu vom 29. Mai 1996
+- **DBATaipehG** Gesetz zum Abkommen vom 19. und 28. Dezember 2011 zwischen dem Deutschen Institut in Taipeh und der Taipeh Vertretung in der Bundesrepublik Deutschland zur Vermeidung der Doppelbesteuerung und zur Verhinderung der Steuerverkürzung hinsichtlich der Steuern vom Einkommen und vom Vermögen
+- **DBAVENG** Gesetz zu dem Abkommen vom 8. Februar 1995 zwischen der Bundesrepublik Deutschland und der Republik Venezuela zur Vermeidung der Doppelbesteuerung auf dem Gebiet der Steuern vom Einkommen und vom Vermögen
+- **DBAVerArabEmG** Gesetz zu dem Abkommen vom 9. April 1995 zwischen der Bundesrepublik Deutschland und den Vereinigten Arabischen Emiraten zur Vermeidung der Doppelbesteuerung auf dem Gebiet der Steuern vom Einkommen und vom Vermögen und zur Belebung der wirtschaftlichen Beziehungen
+- **DBAZAbkBELG** Gesetz zu dem Zusatzabkommen vom 5. November 2002 zum Abkommen vom 11. April 1967 zwischen der Bundesrepublik Deutschland und dem Königreich Belgien zur Vermeidung der Doppelbesteuerungen und zur Regelung verschiedener anderer Fragen auf dem Gebiete der Steuern vom Einkommen und vom Vermögen einschließlich der Gewerbesteuer und der Grundsteuern
+- **DBAZusAbkG-FRA-2015** Gesetz zu dem Zusatzabkommen vom 31. März 2015 zum Abkommen vom 21. Juli 1959 zwischen der Bundesrepublik Deutschland und der Französischen Republik zur Vermeidung der Doppelbesteuerungen und über gegenseitige Amts- und Rechtshilfe auf dem Gebiete der Steuern vom Einkommen und vom Vermögen sowie der Gewerbesteuern und der Grundsteuern
+- **DBBankAbkG-GBR** Gesetz zu dem Abkommen vom 7. Dezember 2011 zwischen der Bundesrepublik Deutschland und dem Vereinigten Königreich Großbritannien und Nordirland zur Vermeidung der Doppelbelastung bei der Bankenabgabe
+- **DBeglG** Dienstrechtliches Begleitgesetz im Zusammenhang mit dem Beschluß des Deutschen Bundestages vom 20. Juli 1991 zur Vollendung der Einheit Deutschlands
+- **DBestAUTAbkG** Gesetz zu dem Abkommen vom 8. Juli 1992 zur Änderung des Abkommens vom 4. Oktober 1954 zwischen der Bundesrepublik Deutschland und der Republik Österreich zur Vermeidung der Doppelbesteuerung auf dem Gebiete der Steuern vom Einkommen und vom Vermögen sowie der Gewerbesteuern und der Grundsteuern
+- **DBGrG** Gesetz über die Gründung einer Deutsche Bahn Aktiengesellschaft
+- **DBiblG** Gesetz über die Deutsche Bibliothek
+- **DBPVermG** Gesetz über die vermögensrechtlichen Verhältnisse der Deutschen Bundespost
+- **DBSeeLuftAbkG-PAN** Gesetz zu dem Abkommen vom 21. November 2016 zwischen der Bundesrepublik Deutschland und der Republik Panama zur Vermeidung der Doppelbesteuerung auf dem Gebiet der Steuern vom Einkommen betreffend den Betrieb von Seeschiffen oder Luftfahrzeugen im internationalen Verkehr
+- **DBUStiftG** Gesetz zur Errichtung einer Stiftung "Deutsche Bundesstiftung Umwelt"
+- **DDR-EErfG** Gesetz zur Regelung in der Deutschen Demokratischen Republik nicht erfüllter Entschädigungsansprüche aus Enteignung
+- **DDRIG** Gesetz zum Abbau von Hemmnissen bei Investitionen in der Deutschen Demokratischen Republik einschließlich Berlin (Ost)
+- **DDTG** Gesetz über den Verkehr mit DDT
+- **De-Mail-G** De-Mail-Gesetz
+- **DEFG** Gesetz über die Errichtung eines Fonds "Deutsche Einheit"
+- **DGBankSa** Satzung DG BANK AG
+- **DGBankUmwG** Gesetz zur Umwandlung der Deutschen Genossenschaftsbank
+- **DHMG** Gesetz zur Errichtung einer Stiftung „Deutsches Historisches Museum“
+- **DiätAssG** Gesetz über den Beruf des Diätassistenten
+- **DiätAssG-1994** Gesetz über den Beruf der Diätassistentin und des Diätassistenten (Artikel 1 des Gesetzes über den Beruf der Diätassistentin und des Diätassistenten und zur Änderung verschiedener Gesetze über den Zugang zu anderen Heilberufen)
+- **DiätenG** Gesetz über die Entschädigung der Mitglieder des Bundestages
+- **DiätenGÄndG** Gesetz zur Änderung des Gesetzes über die Entschädigung der Mitglieder des Bundestages
+- **DiätenGÄndG-2** Zweites Gesetz zur Änderung des Diätengesetzes 1968
+- **DienstRÄndG-2** Zweites Gesetz zur Änderung dienstrechtlicher Vorschriften (Angehörige des öffentlichen Dienstes in Landesparlamenten)
+- **DienstRÄndG-5** Fünftes Gesetz zur Änderung dienstrechtlicher Vorschriften
+- **DienstRÄndG-6** Sechstes Gesetz zur Änderung dienstrechtlicher Vorschriften
+- **DienstRÄndG-7** Siebentes Gesetz zur Änderung dienstrechtlicher Vorschriften
+- **DienstStrRÄndG** Gesetz zur Änderung und Ergänzung des Dienststrafrechts
+- **DIFG** Gesetz zur Errichtung des Sondervermögens „Digitale Infrastruktur“
+- **DIMRG** Gesetz über die Rechtsstellung und Aufgaben des Deutschen Instituts für Menschenrechte
+- **DIndBVermVerwG** Gesetz über die Verwendung des Vermögens der Deutschen Industriebank
+- **DiplBezÜbkG** Gesetz zu dem Wiener Übereinkommen vom 18. April 1961 über diplomatische Beziehungen
+- **DirektZahlDurchfG** Gesetz zur Durchführung der Direktzahlungen an Inhaber landwirtschaftlicher Betriebe im Rahmen von Stützungsregelungen der Gemeinsamen Agrarpolitik
+- **DirektZahlVerpflG** Gesetz zur Regelung der Einhaltung anderweitiger Verpflichtungen durch Landwirte im Rahmen gemeinschaftsrechtlicher Vorschriften über Direktzahlungen und sonstige Stützungsregelungen
+- **DKfAG** Dienstrechtliches Kriegsfolgen-Abschlußgesetz
+- **DLAEG** Gesetz zur Einführung eines Dienstleistungsabends
+- **DlKonjStatG** Gesetz über konjunkturstatistische Erhebungen in bestimmten Dienstleistungsbereichen
+- **DLKonjStatG-2007** Gesetz über konjunkturstatistische Erhebungen in bestimmten Dienstleistungsbereichen
+- **DLKonjStatG-2013** Gesetz über konjunkturstatistische Erhebungen in bestimmten Dienstleistungsbereichen
+- **DLMEintrG** Gesetz über die Eintragung von Dienstleistungsmarken
+- **DlStatG** Gesetz über Statistiken im Dienstleistungsbereich
+- **DMBeEndG** Gesetz über die Beendigung der Zahlungsmitteleigenschaft der auf Deutsche Mark lautenden Banknoten und der auf Deutsche Mark oder Deutsche Pfennig lautenden Bundesmünzen
+- **DMBG** Gesetz über die Eröffnungsbilanz in Deutscher Mark und die Kapitalneufestsetzung
+- **DMBGErgG** Gesetz zur Änderung und Ergänzung des D-Markbilanzgesetzes
+- **DMBGErgG-2** Gesetz über weitere Ergänzungen und Änderungen des D-Markbilanzgesetzes sowie über die Ausgabe von Aktien in Deutscher Mark
+- **DMBGErgG-3** Gesetz über weitere Ergänzungen und Änderungen des D-Markbilanzgesetzes sowie über Ergänzungen des Altbanken-Bilanz-Gesetzes
+- **DMBGErgG-4** Viertes D-Markbilanzergänzungsgesetz
+- **DMBilG** Gesetz über die Eröffnungsbilanz in Deutscher Mark und die Kapitalneufestsetzung
+- **DMBSaarG** D-Markbilanzgesetz für das Saarland
+- **DNA-IfG** Gesetz zur Änderung der Strafprozeßordnung (DNA-Identitätsfeststellungsgesetz)
+- **DNBG** Gesetz über die Deutsche Nationalbibliothek
+- **DöKVAG** Ausführungsgesetz zum deutsch-österreichischen Konkursvertrag
+- **DOHG** Gesetz über eine finanzielle Hilfe für Doping-Opfer der DDR
+- **DOHG-2** Zweites Gesetz über eine finanzielle Hilfe für Dopingopfer der DDR
+- **DollBBerAbk2G** Gesetz zum Zweiten Abkommen vom 16. August 1960 zwischen der Bundesrepublik Deutschland und den Vereinigten Staaten von Amerika über gewisse Angelegenheiten, die sich aus der Bereinigung deutscher Dollarbonds ergeben
+- **DonauSchÜbkG** Gesetz zu dem Übereinkommen vom 29. Juni 1994 über die Zusammenarbeit zum Schutz und zur verträglichen Nutzung der Donau (Donauschutzübereinkommen)
+- **DonauSchYUGAbkG** Gesetz zu dem Abkommen vom 26. Juni 1954 zwischen der Regierung der Bundesrepublik Deutschland und der Regierung der Föderativen Volksrepublik Jugoslawien über die vorläufige Regelung der Donauschiffahrt und zu dem Abkommen vom 17. Juli 1956 zwischen der Bundesrepublik Deutschland und der Föderativen Volksrepublik Jugoslawien über die Zollbehandlung der Donauschiffe
+- **DopingÜbkG** Gesetz zu dem Übereinkommen vom 16. November 1989 gegen Doping
+- **DPAAnfG** Gesetz über die Frist für die Anfechtung von Entscheidungen des Deutschen Patentamts
+- **DRAG-ISR-1980** Gesetz zu dem Abkommen vom 29. Mai 1980 zwischen der Bundesrepublik Deutschland und dem Staat Israel zur Vermeidung der Doppelbesteuerung auf dem Gebiet der Nachlaß- und Erbschaftssteuern in der Fassung des Änderungsprotokolls vom 20. Januar 1984
+- **DRentBkG** Gesetz über die Errichtung der Deutschen Rentenbank-Kreditanstalt
+- **DRentBkLiqG** Gesetz über die Liquidation der Deutschen Rentenbank und über weitere Maßnahmen zur Abwicklung der landwirtschaftlichen Entschuldung
+- **DRentBkSchLiqG** Gesetz über die Liquidierung des Umlaufs an Rentenbankscheinen
+- **DRiG** Deutsches Richtergesetz
+- **DRiGÄndG** Gesetz zur Änderung des Deutschen Richtergesetzes
+- **DRiGÄndG-2** Zweites Gesetz zur Änderung des Deutschen Richtergesetzes
+- **DRiGÄndG-3** Drittes Gesetz zur Änderung des Deutschen Richtergesetzes
+- **DrittelbG** Gesetz über die Drittelbeteiligung der Arbeitnehmer im Aufsichtsrat
+- **DRKG** Gesetz über das Deutsche Rote Kreuz
+- **DRKG-2008** Gesetz über das Deutsche Rote Kreuz und andere freiwillige Hilfsgesellschaften im Sinne der Genfer Rotkreuz-Abkommen
+- **DSLBG** Gesetz über die Deutsche Siedlungs- und Landesrentenbank
+- **DSLBSa** Satzung der DSL Bank AG (Anhang des Gesetzes über die Umwandlung der Deutschen Siedlungs- und Landesrentenbank in eine Aktiengesellschaft)
+- **DSLBUmwG** Gesetz über die Umwandlung der Deutschen Siedlungs- und Landesrentenbank in eine Aktiengesellschaft
+- **DSÜbkG** Gesetz zu dem Übereinkommen vom 28. Januar 1981 zum Schutz des Menschen bei der automatischen Verarbeitung personenbezogener Daten
+- **DtA-VÜG** Gesetz zur Übertragung des Vermögens der Deutschen Ausgleichsbank auf die Kreditanstalt für Wiederaufbau
+- **DublÜbkG** Gesetz zu dem Übereinkommen vom 15. Juni 1990 über die Bestimmung des zuständigen Staates für die Prüfung eines in einem Mitgliedstaat der Europäischen Gemeinschaften gestellten Asylantrags
+- **DÜG** Diskontsatz-Überleitungs-Gesetz
+- **DÜGAufhG** Gesetz zur Aufhebung des Diskontsatz-Überleitungs-Gesetzes
+- **DüngG** Düngegesetz
+- **DüngMG-1977** Düngemittelgesetz
+- **DüngMSaatG** Gesetz zur Sicherung der Düngemittel- und Saatgutversorgung
+- **DüngMSaatGVerlG** Gesetz zur Verlängerung des Gesetzes zur Sicherung der Düngemittel- und Saatgutversorgung
+- **DWDG** Gesetz über den Deutschen Wetterdienst
+- **DWetterDiG** Gesetz über den Deutschen Wetterdienst
+- **DWG** Gesetz über die Rundfunkanstalt des Bundesrechts "Deutsche Welle"
+- **DWGÄndG** Gesetz zur Änderung des Deutsche-Welle-Gesetzes
+- **EAEG** Anlegerentschädigungsgesetz
+- **EALG** Gesetz über die Entschädigung nach dem Gesetz zur Regelung offener Vermögensfragen und über staatliche Ausgleichsleistungen für Enteignungen auf besatzungsrechtlicher oder besatzungshoheitlicher Grundlage
+- **EBAufsG** Gesetz über die Eisenbahnaufsicht
+- **EbertStiftG** Gesetz über die Errichtung einer Stiftung Reichspräsident-Friedrich-Ebert-Gedenkstätte
+- **EBIG** Gesetz zur Europäischen Bürgerinitiative
+- **EBKrG** Gesetz über Kreuzungen von Eisenbahnen und Straßen
+- **EBKrG-1939** Gesetz über Kreuzungen von Eisenbahnen und Straßen
+- **EBPensNOG** Gesetz zur Neuordnung der Pensionskasse Deutscher Eisenbahnen und Straßenbahnen
+- **EBPfSchG** Gesetz, betreffend die Unzulässigkeit der Pfändung von Eisenbahnfahrbetriebsmitteln
+- **EBPG** Gesetz über die umweltgerechte Gestaltung energieverbrauchsrelevanter Produkte
+- **EBRG** Gesetz über Europäische Betriebsräte
+- **EBVtrCZEG** Gesetz zu dem Vertrag vom 19. Juni 1997 zwischen der Bundesrepublik Deutschland und der Tschechischen Republik über den Eisenbahnverkehr über die gemeinsame Staatsgrenze und über den erleichterten Eisenbahndurchgangsverkehr
+- **ECHVertrG** Gesetz zu dem Vertragswerk vom 17. Dezember 1994 über die Energiecharta
+- **EDL-G** Gesetz über Energiedienstleistungen und andere Energieeffizienzmaßnahmen
+- **EEG** Gesetz für den Vorrang Erneuerbarer Energien
+- **EEG-2004** Gesetz für den Vorrang Erneuerbarer Energien
+- **EEG-2009** Gesetz für den Vorrang Erneuerbarer Energien
+- **EEG-2014** Gesetz für den Ausbau erneuerbarer Energien
+- **EEWärmeG** Gesetz zur Förderung Erneuerbarer Energien im Wärmebereich
+- **EGAHiG** Gesetz zur Durchführung der EG-Richtlinie über die gegenseitige Amtshilfe im Bereich der direkten Steuern, bestimmter Verbrauchsteuern und der Steuern auf Versicherungsprämien
+- **EGBeitrESP-PRTG** Gesetz zu dem Vertrag vom 12. Juni 1985 und dem Beitritt des Königreichs Spanien und der Portugiesischen Republik zur Europäischen Wirtschaftsgemeinschaft, zur Europäischen Atomgemeinschaft und zur Europäischen Gemeinschaft für Kohle und Stahl
+- **EGBeitrG** Gesetz zur Durchführung der EG-Beitreibungsrichtlinie
+- **EGBes725-2003UmsG** Gesetz zur Umsetzung des Beschlusses des Rates (2003/725/JI) vom 2. Oktober 2003 zur Änderung von Artikel 40 Abs. 1 und 7 des Übereinkommens zur Durchführung des Schengener Übereinkommens vom 14. Juni 1985 betreffend den schrittweisen Abbau der Kontrollen an den gemeinsamen Grenzen
+- **EGFinSchAProtG** Gesetz zu dem Protokoll vom 29. November 1996 aufgrund von Artikel K.3 des Vertrags über die Europäische Union betreffend die Auslegung des Übereinkommens über den Schutz der finanziellen Interessen der Europäischen Gemeinschaften durch den Gerichtshof der Europäischen Gemeinschaften im Wege der Vorabentscheidung
+- **EGGenTDurchfG** Gesetz zur Durchführung der Verordnungen der Europäischen Gemeinschaft oder der Europäischen Union auf dem Gebiet der Gentechnik und über die Kennzeichnung ohne Anwendung gentechnischer Verfahren hergestellter Lebensmittel
+- **EGGesRRLDG** Gesetz zur Durchführung der Ersten Richtlinie des Rates der Europäischen Gemeinschaften zur Koordinierung des Gesellschaftsrechts
+- **EGGmbHG** Einführungsgesetz zum Gesetz betreffend die Gesellschaften mit beschränkter Haftung
+- **EGInsO** Einführungsgesetz zur Insolvenzordnung
+- **EGKS-UmVG** Gesetz zur Schaffung eines Vorrechts für Umlagen auf die Erzeugung von Kohle und Stahl
+- **EGKSVtrÄndVtrG** Gesetz über den Vertrag vom 27. Oktober 1956 zur Abänderung des Vertrages über die Gründung der Europäischen Gemeinschaft für Kohle und Stahl
+- **EGMRKHG** Gesetz zur Einführung von Kostenhilfe für Drittbetroffene in Verfahren vor dem Europäischen Gerichtshof für Menschenrechte
+- **EGovG** Gesetz zur Förderung der elektronischen Verwaltung
+- **EGV820-97G** Gesetz über die Verwendung der zur Durchführung der Rechtsakte der Europäischen Gemeinschaft über die Kennzeichnung und Registrierung von Rindern erhobenen Daten
+- **EGVertrG** Gesetz zu dem Vertrag vom 8. April 1965 zur Einsetzung eines gemeinsamen Rates und einer gemeinsamen Kommission der Europäischen Gemeinschaften
+- **EgVG** Gesetz zur Erstellung gesamtwirtschaftlicher Vorausschätzungen der Bundesregierung
+- **EheAnerkG** Gesetz über die Anerkennung freier Ehen rassisch und politisch Verfolgter
+- **EhefZeugnÜbkG** Gesetz zu dem Übereinkommen vom 5. September 1980 über die Ausstellung von Ehefähigkeitszeugnissen
+- **EheG-1946** Ehegesetz
+- **EheNÄndG** Gesetz über die Änderung des Ehenamens
+- **EheRG-1** Erstes Gesetz zur Reform des Ehe- und Familienrechts
+- **EheschlRG** Gesetz zur Neuordnung des Eheschließungsrechts
+- **EheschlRWirkgG** Gesetz über die Rechtswirkungen des Ausspruchs einer nachträglichen Eheschließung
+- **EhfG** Entwicklungshelfer-Gesetz
+- **EhrRiEntschG** Gesetz über die Entschädigung der ehrenamtlichen Richter
+- **EichG** Gesetz über das Meß- und Eichwesen
+- **eIDKG** Gesetz über eine Karte für Unionsbürger und Angehörige des Europäischen Wirtschaftsraums mit Funktion zum elektronischen Identitätsnachweis
+- **EigZulG** Eigenheimzulagengesetz
+- **EinigVtrG** Gesetz zu dem Vertrag vom 31. August 1990 zwischen der Bundesrepublik Deutschland und der Deutschen Demokratischen Republik über die Herstellung der Einheit Deutschlands - Einigungsvertragsgesetz - und der Vereinbarung vom 18. September 1990
+- **EinsatzWVG** Gesetz zur Regelung der Weiterverwendung nach Einsatzunfällen
+- **EinSiG** Einlagensicherungsgesetz
+- **EJG** Gesetz zur Umsetzung des Beschlusses (2002/187/JI) des Rates vom 28. Februar 2002 über die Errichtung von Eurojust zur Verstärkung der Bekämpfung der schweren Kriminalität
+- **EJG-2019** Gesetz über Eurojust und das Europäische Justizielle Netz in Strafsachen
+- **EKFG** Gesetz zur Errichtung eines Sondervermögens „Energie- und Klimafonds“
+- **ElbeSKanalG** Gesetz über den rechtlichen Status der Bundeswasserstraße Elbe-Seitenkanal
+- **ElektroG** Gesetz über das Inverkehrbringen, die Rücknahme und die umweltverträgliche Entsorgung von Elektro- und Elektronikgeräten
+- **ElektroG-2015** Gesetz über das Inverkehrbringen, die Rücknahme und die umweltverträgliche Entsorgung von Elektro- und Elektronikgeräten
+- **ELFG** Gesetz über die Errichtung eines Erblastentilgungsfonds
+- **EmoG** Gesetz zur Bevorrechtigung der Verwendung elektrisch betriebener Fahrzeuge
+- **EmsDolKoopVtrNLDG** Gesetz zu dem Vertrag vom 10. September 1984 zwischen der Bundesrepublik Deutschland und dem Königreich der Niederlande über die Zusammenarbeit im Bereich von Ems und Dollart sowie in den angrenzenden Gebieten (Kooperationsvertrag Ems-Dollart)
+- **EMVBG** Gesetz über die elektromagnetische Verträglichkeit von Betriebsmitteln
+- **EMVG** Gesetz über die elektromagnetische Verträglichkeit von Geräten
+- **EMVG-1998** Gesetz über die elektromagnetische Verträglichkeit von Geräten
+- **EMVG-2016** Gesetz über die elektromagnetische Verträglichkeit von Betriebsmitteln
+- **EnEG** Gesetz zur Einsparung von Energie in Gebäuden
+- **EnergieStG** Energiesteuergesetz
+- **ENeuOG** Gesetz zur Neuordnung des Eisenbahnwesens
+- **EnLAG** Gesetz zum Ausbau von Energieleitungen
+- **EnSiG-1975** Gesetz zur Sicherung der Energieversorgung
+- **EnStatG** Gesetz über Energiestatistik
+- **EnStatG-2017** Energiestatistikgesetz
+- **EntflechtG** Gesetz zur Entflechtung von Gemeinschaftsaufgaben und Finanzhilfen
+- **EntgFG** Gesetz über die Zahlung des Arbeitsentgelts an Feiertagen und im Krankheitsfall
+- **EntgTranspG** Gesetz zur Förderung der Entgelttransparenz zwischen Frauen und Männern
+- **EntschAbwG** Gesetz zur Abwicklung der landwirtschaftlichen Entschuldung
+- **EntschG** Gesetz über die Entschädigung nach dem Gesetz zur Regelung offener Vermögensfragen
+- **EntschRG** Entschädigungsrentengesetz
+- **EntsorgFondsG** Gesetz zur Errichtung eines Fonds zur Finanzierung der kerntechnischen Entsorgung
+- **EntsorgÜG** Gesetz zur Regelung des Übergangs der Finanzierungs- und Handlungspflichten für die Entsorgung radioaktiver Abfälle der Betreiber von Kernkraftwerken
+- **EntwHStG** Gesetz über steuerliche Maßnahmen zur Förderung von privaten Kapitalanlagen in Entwicklungsländern
+- **EnVKG** Gesetz zur Umsetzung von Rechtsakten der Europäischen Gemeinschaften auf dem Gebiet der Energieeinsparung bei Haushaltsgeräten
+- **EnVKG-2002** Gesetz zur Umsetzung von Rechtsakten der Europäischen Gemeinschaften auf dem Gebiet der Energieeinsparung bei Geräten und Kraftfahrzeugen
+- **EnVKG-2012** Gesetz zur Kennzeichnung von energieverbrauchsrelevanten Produkten, Kraftfahrzeugen und Reifen mit Angaben über den Verbrauch an Energie und an anderen wichtigen Ressourcen
+- **EnWG** Gesetz über die Elektrizitäts- und Gasversorgung
+- **EnWG-2005** Gesetz über die Elektrizitäts- und Gasversorgung
+- **EnWGNOG** Übergangsgesetz aus Anlass des Gesetzes zur Neuregelung des Energiewirtschaftsrechts
+- **EnWiG** Gesetz zur Förderung der Energiewirtschaft
+- **ErbbauV** Gesetz über das Erbbaurecht
+- **ErbbauVÄndG** Gesetz zur Änderung der Verordnung über das Erbbaurecht
+- **ErbStG-1974** Erbschaftsteuer- und Schenkungsteuergesetz
+- **ErbStRG** Gesetz zur Reform des Erbschaftsteuer- und Schenkungsteuerrechts
+- **ErbStRG-2009** Gesetz zur Reform des Erbschaftsteuer- und Bewertungsrechts
+- **ErdgasLeitBauFöG** Gesetz über Finanzhilfen des Bundes zur Förderung des Baues von Erdgasleitungen
+- **ErdölBevG** Gesetz über die Bevorratung mit Erdöl und Erdölerzeugnissen
+- **ErdölBevG-2012** Gesetz über die Bevorratung mit Erdöl und Erdölerzeugnissen
+- **ErdölBevGÄndG-2** Zweites Gesetz zur Änderung des Erdölbevorratungsgesetzes
+- **ERegG** Eisenbahnregulierungsgesetz
+- **ErholNutzG** Gesetz zur Bereinigung der im Beitrittsgebiet zu Erholungszwecken verliehenen Nutzungsrechte
+- **ErKGNAnrG** Gesetz zur Nichtanrechnung rückwirkender Erhöhungen des Kindergeldes
+- **ERPBürgschG** Drittes Gesetz über die Übernahme von Sicherheitsleistungen und Gewährleistungen zur Förderung der deutschen Wirtschaft
+- **ERPBürgschG-2** Gesetz zur Ergänzung des Dritten Gesetzes über die Übernahme von Sicherheitsleistungen und Gewährleistungen zur Förderung der deutschen Wirtschaft
+- **ERPEntwHiG** Gesetz über die Finanzierungshilfe für Entwicklungsländer aus Mitteln des ERP-Sondervermögens
+- **ERPSchG** Gesetz zur Mitübernahme der Schulden und Rechte des ERP-Sondervermögens in die Bundesschuld und in das Bundesvermögen, über die Zuführung von Mitteln aus dem ERP-Sondervermögen an den Bundeshaushalt sowie über die Einbringung von ERP-Vermögen in die Kreditanstalt für Wiederaufbau
+- **ERPVerwG-2007** Gesetz über die Verwaltung des ERP-Sondervermögens
+- **ERPVwG** Gesetz über die Verwaltung des ERP-Sondervermögens
+- **ERPWiPlanG-1962** Gesetz über die Feststellung des Wirtschaftsplans des ERP-Sondervermögens für das Rechnungsjahr 1962
+- **ERPWiPlanG-1964** Gesetz über die Feststellung des Wirtschaftsplans des ERP-Sondervermögens für das Rechnungsjahr 1964
+- **ERPWiPlanG-1965** Gesetz über die Feststellung des Wirtschaftsplans des ERP-Sondervermögens für das Rechnungsjahr 1965
+- **ERPWiPlanG-1966** Gesetz über die Feststellung des Wirtschaftsplans des ERP-Sondervermögens für das Rechnungsjahr 1966
+- **ERPWiPlanG-1967** Gesetz über die Feststellung des Wirtschaftsplans des ERP-Sondervermögens für das Rechnungsjahr 1967
+- **ERPWiPlanG-1968** Gesetz über die Feststellung des Wirtschaftsplans des ERP-Sondervermögens für das Rechnungsjahr 1968
+- **ERPWiPlanG-1969** Gesetz über die Feststellung der Wirtschaftspläne des ERP-Sondervermögens für das Rechnungsjahr 1969
+- **ERPWiPlanG-1994** Gesetz über die Feststellung des Wirtschaftsplans des ERP-Sondervermögens für das Jahr 1994
+- **ERPWiPlanG-1995** Gesetz über die Feststellung des Wirtschaftsplans des ERP-Sondervermögens für das Jahr 1995
+- **ERPWiPlanG-1996** Gesetz über die Feststellung des Wirtschaftsplans des ERP-Sondervermögens für das Jahr 1996
+- **ERPWiPlanG-1997** Gesetz über die Feststellung des Wirtschaftsplans des ERP-Sondervermögens für das Jahr 1997
+- **ERPWiPlanG-1998** Gesetz über die Feststellung des Wirtschaftsplans des ERP-Sondervermögens für das Jahr 1998
+- **ERPWiPlanG-1999** Gesetz über die Feststellung des Wirtschaftsplans des ERP-Sondervermögens für das Jahr 1999
+- **ERPWiPlanG-2000** Gesetz über die Feststellung des Wirtschaftsplans des ERP-Sondervermögens für das Jahr 2000
+- **ERPWiPlanG-2001** Gesetz über die Feststellung des Wirtschaftsplans des ERP-Sondervermögens für das Jahr 2001
+- **ERPWiPlanG-2002** Gesetz über die Feststellung des Wirtschaftsplans des ERP-Sondervermögens für das Jahr 2002
+- **ERPWiPlanG-2003** Gesetz über die Feststellung des Wirtschaftsplans des ERP-Sondervermögens für das Jahr 2003
+- **ERPWiPlanG-2004** Gesetz über die Feststellung des Wirtschaftsplans des ERP-Sondervermögens für das Jahr 2004
+- **ERPWiPlanG-2005** Gesetz über die Feststellung des Wirtschaftsplans des ERP-Sondervermögens für das Jahr 2005
+- **ERPWiPlanG-2006** Gesetz über die Feststellung des Wirtschaftsplans des ERP-Sondervermögens für das Jahr 2006
+- **ERPWiPlanG-2007** Gesetz über die Feststellung des Wirtschaftsplans des ERP-Sondervermögens für das Jahr 2007
+- **ERPWiPlanG-2008** Gesetz über die Feststellung des Wirtschaftsplans des ERP-Sondervermögens für das Jahr 2008
+- **ERPWiPlanG-2009** Gesetz über die Feststellung des Wirtschaftsplans des ERP-Sondervermögens für das Jahr 2009
+- **ERPWiPlanG-2010** Gesetz über die Feststellung des Wirtschaftsplans des ERP-Sondervermögens für das Jahr 2010
+- **ERPWiPlanG-2011** Gesetz über die Feststellung des Wirtschaftsplans des ERP-Sondervermögens für das Jahr 2011
+- **ERPWiPlanG-2012** Gesetz über die Feststellung des Wirtschaftsplans des ERP-Sondervermögens für das Jahr 2012
+- **ERPWiPlanG-2013** Gesetz über die Feststellung des Wirtschaftsplans des ERP-Sondervermögens für das Jahr 2013
+- **ERPWiPlanG-2014** Gesetz über die Feststellung des Wirtschaftsplans des ERP-Sondervermögens für das Jahr 2014
+- **ERPWiPlanG-2015** Gesetz über die Feststellung des Wirtschaftsplans des ERP-Sondervermögens für das Jahr 2015
+- **ERPWiPlanG-2016** Gesetz über die Feststellung des Wirtschaftsplans des ERP-Sondervermögens für das Jahr 2016
+- **ERPWiPlanG-2017** Gesetz über die Feststellung des Wirtschaftsplans des ERP-Sondervermögens für das Jahr 2017
+- **ERPWiPlanG-2018** Gesetz über die Feststellung des Wirtschaftsplans des ERP-Sondervermögens für das Jahr 2018
+- **ERPWiPlanG-2019** Gesetz über die Feststellung des Wirtschaftsplans des ERP-Sondervermögens für das Jahr 2019
+- **ERPWiPlanG-2020** Gesetz über die Feststellung des Wirtschaftsplans des ERP-Sondervermögens für das Jahr 2020
+- **ErsDiG** Gesetz über den Zivildienst der Kriegsdienstverweigerer
+- **ErstG** Gesetz über das Verfahren für die Erstattung von Fehlbeständen an öffentlichem Vermögen
+- **ErstrG** Gesetz über die Erstreckung von gewerblichen Schutzrechten
+- **ERVGerFöG** Gesetz zur Förderung des elektronischen Rechtsverkehrs mit den Gerichten
+- **ErwSÜAG** Gesetz zur Ausführung des Haager Übereinkommens vom 13. Januar 2000 über den internationalen Schutz von Erwachsenen
+- **ErwZulG** Gesetz über die erweiterte Zulassung von Schadenersatzansprüchen bei Dienst- und Arbeitsunfällen
+- **ESchG** Gesetz zum Schutz von Embryonen
+- **ESG** Gesetz über die Sicherstellung der Versorgung mit Erzeugnissen der Ernährungs- und Landwirtschaft sowie der Forst- und Holzwirtschaft
+- **ESMFinG** Gesetz zur finanziellen Beteiligung am Europäischen Stabilitätsmechanismus
+- **EStFreigG** Gesetz über die Freigabe der stillgelegten Mittel aus dem Zuschlag zur Einkommensteuer und zur Körperschaftsteuer sowie über die Aufhebung der Stillegungspflicht für künftig aufkommende Beträge
+- **EStG** Einkommensteuergesetz
+- **EStRGEG** Einführungsgesetz zum Einkommensteuerreformgesetz
+- **ESVG** Gesetz über die Sicherstellung der Grundversorgung mit Lebensmitteln in einer Versorgungskrise und Maßnahmen zur Vorsorge für eine Versorgungskrise
+- **ESZG** Gesetz über eine einmalige Sonderzahlung
+- **EthRG** Gesetz zur Einrichtung des Deutschen Ethikrats
+- **EU-DBA-SBG** Gesetz zur Umsetzung der Richtlinie (EU) 2017/1852 des Rates vom 10. Oktober 2017 über Verfahren zur Beilegung von Besteuerungsstreitigkeiten in der Europäischen Union
+- **EU-FahrgRBusG** EU-Fahrgastrechte-Kraftomnibus-Gesetz
+- **EU-FahrgRSchG** EU-Fahrgastrechte-Schifffahrt-Gesetz
+- **EuAbgG** Gesetz über die Rechtsverhältnisse der Mitglieder des Europäischen Parlaments aus der Bundesrepublik Deutschland
+- **EUAHiG** Gesetz über die Durchführung der gegenseitigen Amtshilfe in Steuersachen zwischen den Mitgliedstaaten der Europäischen Union
+- **EuAuskÜbkG** Gesetz zur Ausführung des Europäischen Übereinkommens betreffend Auskünfte über ausländisches Recht und seines Zusatzprotokolls
+- **EuAuslf-RHiÜbkG** Gesetz zu dem Europäischen Auslieferungsübereinkommen vom 13. Dezember 1957 und zu dem Europäischen Übereinkommen vom 20. April 1959 über die Rechtshilfe in Strafsachen
+- **EuAuslfÜbkErgVtrITAG** Gesetz zu dem Vertrag vom 24. Oktober 1979 zwischen der Bundesrepublik Deutschland und der Italienischen Republik über die Ergänzung des Europäischen Auslieferungsübereinkommens vom 13. Dezember 1957 und die Erleichterung seiner Anwendung
+- **EuAuslfÜbkErgVtrPOLG** Gesetz zu dem Vertrag vom 17. Juli 2003 zwischen der Bundesrepublik Deutschland und der Republik Polen über die Ergänzung des Europäischen Auslieferungsübereinkommens vom 13. Dezember 1957 und die Erleichterung seiner Anwendung
+- **EUAuslÜbkG** Gesetz zu dem Übereinkommen vom 27. September 1996 über die Auslieferung zwischen den Mitgliedstaaten der Europäischen Union
+- **EuAuslVwZ-AuskÜbkAG** Gesetz zur Ausführung des Europäischen Übereinkommens vom 24. November 1977 über die Zustellung von Schriftstücken in Verwaltungssachen im Ausland und des Europäischen Übereinkommens vom 15. März 1978 über die Erlangung von Auskünften und Beweisen in Verwaltungssachen im Ausland
+- **EUBeitrG** Gesetz über die Durchführung der Amtshilfe bei der Beitreibung von Forderungen in Bezug auf bestimmte Steuern, Abgaben und sonstige Maßnahmen zwischen den Mitgliedstaaten der Europäischen Union
+- **EUBeitrVtrBGR-ROMG** Gesetz zu dem Vertrag vom 25. April 2005 über den Beitritt der Republik Bulgarien und Rumäniens zur Europäischen Union
+- **EUBeitrVtrCZEuaG** Gesetz zu dem Vertrag vom 16. April 2003 über den Beitritt der Tschechischen Republik, der Republik Estland, der Republik Zypern, der Republik Lettland, der Republik Litauen, der Republik Ungarn, der Republik Malta, der Republik Polen, der Republik Slowenien und der Slowakischen Republik zur Europäischen Union
+- **EUBeitrVtrG** Gesetz zu dem Vertrag vom 24. Juni 1994 über den Beitritt des Königreichs Norwegen, der Republik Österreich, der Republik Finnland und des Königreichs Schweden zur Europäischen Union
+- **EUBestBekämpfÜbkG** Gesetz zu dem Übereinkommen vom 26. Mai 1997 über die Bekämpfung der Bestechung, an der Beamte der Europäischen Gemeinschaften oder der Mitgliedstaaten der Europäischen Union beteiligt sind
+- **EUBestG** Gesetz zu dem Protokoll vom 27. September 1996 zum Übereinkommen über den Schutz der finanziellen Interessen der Europäischen Gemeinschaften
+- **EÜG** Gesetz über den Einfluß von Eignungsübungen der Streitkräfte auf Vertragsverhältnisse der Arbeitnehmer und Handelsvertreter sowie auf Beamtenverhältnisse
+- **EuFernsAbkG** Gesetz über das Europäische Abkommen vom 22. Juni 1960 zum Schutz von Fernsehsendungen
+- **EuFernsAbkProtG** Gesetz über das am 22. Januar 1965 in Straßburg unterzeichnete Protokoll zu dem Europäischen Abkommen vom 22. Juni 1960 zum Schutz von Fernsehsendungen
+- **EUFinSchStG** Gesetz zur Stärkung des Schutzes der finanziellen Interessen der Europäischen Union
+- **EUGewSchVG** Gesetz zum Europäischen Gewaltschutzverfahren
+- **EuGHG** Gesetz betreffend die Anrufung des Gerichtshofes der Europäischen Gemeinschaften im Wege des Vorabentscheidungsverfahrens auf dem Gebiet der polizeilichen Zusammenarbeit und der justitiellen Zusammenarbeit in Strafsachen nach Artikel 35 des EU-Vertrages
+- **EuHSchul-EUROCONTROLBeschlG** Gesetz zu dem Beschluß des Obersten Rates des Europäischen Hochschulinstituts Nr. 8/93 vom 2. Dezember 1993 und zu dem Beschluß der Ständigen Kommission von Eurocontrol vom 28. Oktober 1994
+- **EuKrSchwAusbÜbkG** Gesetz zu dem Europäischen Übereinkommen vom 25. Oktober 1967 über die theoretische und praktische Ausbildung von Krankenschwestern und Krankenpflegern
+- **EuLRaumÜbkG** Gesetz zu dem Übereinkommen vom 19. September 1979 über die Erhaltung der europäischen wildlebenden Pflanzen und Tiere und ihrer natürlichen Lebensräume
+- **EUMETSATÜbkÄndG** Gesetz zu den Änderungen des Übereinkommens vom 24. Mai 1983 zur Gründung einer europäischen Organisation für die Nutzung von meteorologischen Satelliten ("EUMETSAT")
+- **EuOEÜbkG** Gesetz zu dem Europäischen Übereinkommen vom 24. November 1983 über die Entschädigung für Opfer von Gewalttaten
+- **EuPAG** Gesetz über die Tätigkeit europäischer Patentanwälte in Deutschland
+- **EUPflSchMDG** Gesetz über die vorläufige Durchführung unmittelbar geltender Vorschriften der Europäischen Union über die Zulassung oder Genehmigung des Inverkehrbringens von Pflanzenschutzmitteln
+- **EuRAG** Gesetz über die Tätigkeit europäischer Rechtsanwälte in Deutschland
+- **EuRatWahlG-1990** Gesetz über die Wahl der Vertreter der Bundesrepublik Deutschland zur Parlamentarischen Versammlung des Europarates
+- **EuRFVerhÜbkG** Gesetz zu dem Europäischen Übereinkommen vom 22. Januar 1965 zur Verhütung von Rundfunksendungen, die von Sendestellen außerhalb der staatlichen Hoheitsgebiete gesendet werden
+- **EuRHiAUTÜbkErgVtrG** Gesetz zu dem Vertrag vom 31. Januar 1972 zwischen der Bundesrepublik Deutschland und der Republik Österreich über die Ergänzung des Europäischen Übereinkommens vom 20. April 1959 über die Rechtshilfe in Strafsachen und die Erleichterung seiner Anwendung
+- **EuRHiCHEÜbkErgVtrG** Gesetz zu dem Vertrag vom 13. November 1969 zwischen der Bundesrepublik Deutschland und der Schweizerischen Eidgenossenschaft über die Ergänzung des Europäischen Übereinkommens über die Rechtshilfe in Strafsachen vom 20. April 1959 und die Erleichterung seiner Anwendung
+- **EuRHiISRÜbkErgVtrG** Gesetz zu dem Vertrag vom 20. Juli 1977 zwischen der Bundesrepublik Deutschland und dem Staat Israel über die Ergänzung des Europäischen Übereinkommens vom 20. April 1959 über die Rechtshilfe in Strafsachen und die Erleichterung seiner Anwendung
+- **EuRHiÜbkErgVtrCZEG** Gesetz zu dem Vertrag vom 2. Februar 2000 zwischen der Bundesrepublik Deutschland und der Tschechischen Republik über die Ergänzung des Europäischen Übereinkommens über die Rechtshilfe in Strafsachen vom 20. April 1959 und die Erleichterung seiner Anwendung
+- **EuRHiÜbkErgVtrPOLG** Gesetz zu dem Vertrag vom 17. Juli 2003 zwischen der Bundesrepublik Deutschland und der Republik Polen über die Ergänzung des Europäischen Übereinkommens vom 20. April 1959 über die Rechtshilfe in Strafsachen und die Erleichterung seiner Anwendung
+- **EuRHiÜbkVtrFRAG** Gesetz zu dem Vertrag vom 24. Oktober 1974 zwischen der Bundesrepublik Deutschland und der Französischen Republik zu dem Europäischen Übereinkommen vom 20. April 1959 über die Rechtshilfe in Strafsachen
+- **EuRHiÜbkVtrITAG** Gesetz zu dem Vertrag vom 24. Oktober 1979 zwischen der Bundesrepublik Deutschland und der Italienischen Republik über die Ergänzung des Europäischen Übereinkommens vom 20. April 1959 über die Rechtshilfe in Strafsachen und die Erleichterung seiner Anwendung
+- **EuRHiÜbkVtrNLDG** Gesetz zu dem Vertrag vom 30. August 1979 zwischen der Bundesrepublik Deutschland und dem Königreich der Niederlande über die Ergänzung des Europäischen Übereinkommens vom 20. April 1959 über die Rechtshilfe in Strafsachen und die Erleichterung seiner Anwendung
+- **EUROCONTROLÜbkÄndProtG** Gesetz zu dem Protokoll vom 12. Februar 1981 zur Änderung des Internationalen Übereinkommens über Zusammenarbeit zur Sicherung der Luftfahrt "EUROCONTROL" vom 13. Dezember 1960 und zu der Mehrseitigen Vereinbarung vom 12. Februar 1981 über Flugsicherungs-Streckengebühren
+- **EUROCONTROLÜbkG** Gesetz zu dem Internationalen Übereinkommen vom 13. Dezember 1960 über Zusammenarbeit zur Sicherung der Luftfahrt "EUROCONTROL"
+- **EUROCONTROLÜbkNFProtG** Gesetz zu dem Protokoll vom 27. Juni 1997 zur Neufassung des Internationalen Übereinkommens vom 13. Dezember 1960 über Zusammenarbeit zur Sicherung der Luftfahrt „EUROCONTROL“
+- **Euromed-LuftvAbkG-Marok** Gesetz zu dem Europa-Mittelmeer-Luftverkehrsabkommen vom 12. Dezember 2006 zwischen der Europäischen Gemeinschaft und ihren Mitgliedstaaten einerseits und dem Königreich Marokko andererseits
+- **EuropolAuslProtG** Gesetz zu dem Protokoll vom 24. Juli 1996 auf Grund von Artikel K.3 des Vertrags über die Europäische Union betreffend die Auslegung des Übereinkommens über die Errichtung eines Europäischen Polizeiamts durch den Gerichtshof der Europäischen Gemeinschaften im Wege der Vorabentscheidung
+- **EuropolG** Gesetz zur Anwendung der Verordnung (EU) 2016/794 des Europäischen Parlaments und des Rates vom 11. Mai 2016 über die Agentur der Europäischen Union für die Zusammenarbeit auf dem Gebiet der Strafverfolgung (Europol) und zur Ersetzung und Aufhebung der Beschlüsse 2009/371/JI, 2009/934/JI, 2009/935/JI, 2009/936/JI und 2009/968/JI des Rates
+- **EuropolÜbk-GÄndProtG** Gesetz zu dem Protokoll vom 27. November 2003 zur Änderung des Europol-Übereinkommens und zur Änderung des Europol-Gesetzes
+- **EuroUmstG** Gesetz zur Umstellung von Schuldverschreibungen auf Euro
+- **EuStiftÜbkG** Gesetz zu dem Übereinkommen vom 29. März 1982 über die Errichtung einer Europäischen Stiftung
+- **EUTELSATÜbkÄndG** Gesetz zu den Änderungen vom 13. Februar 1997 des Übereinkommens zur Gründung der Europäischen Fernmeldesatellitenorganisation "EUTELSAT" (EUTELSAT-Übereinkommen)
+- **EuTerrorÜbkG** Gesetz zu dem Europäischen Übereinkommen vom 27. Januar 1977 zur Bekämpfung des Terrorismus
+- **EUVtrG** Gesetz zum Vertrag vom 7. Februar 1992 über die Europäische Union
+- **EUVtrLissBMELVAnpG** Gesetz zur Anpassung von Rechtsverordnungen im Zuständigkeitsbereich des Bundesministeriums für Ernährung, Landwirtschaft und Verbraucherschutz im Hinblick auf den Vertrag von Lissabon
+- **EuVtrÜbkG** Gesetz zu dem Übereinkommen vom 19. Juni 1980 über das auf vertragliche Schuldverhältnisse anzuwendende Recht
+- **EuVtrÜbkProtG** Gesetz zu den Protokollen vom 19. Dezember 1988 betreffend die Auslegung des Übereinkommens vom 19. Juni 1980 über das auf vertragliche Schuldverhältnisse anzuwendende Recht durch den Gerichtshof der Europäischen Gemeinschaften sowie zur Übertragung bestimmter Zuständigkeiten für die Auslegung dieses Übereinkommens auf den Gerichtshof der Europäischen Gemeinschaften
+- **EuWaffKontrÜbkG** Gesetz zu dem Europäischen Übereinkommen vom 28. Juni 1978 über die Kontrolle des Erwerbs und Besitzes von Schußwaffen durch Einzelpersonen
+- **EuWAktG** Gesetz zu dem Beschluß und Akt des Rates der Europäischen Gemeinschaften vom 20. September 1976 zur Einführung allgemeiner unmittelbarer Wahlen der Abgeordneten der Versammlung
+- **EuWG** Gesetz über die Wahl der Abgeordneten des Europäischen Parlaments aus der Bundesrepublik Deutschland
+- **EuWGÄndG-3** Drittes Gesetz zur Änderung des Europawahlgesetzes
+- **EUZBBG** Gesetz über die Zusammenarbeit von Bundesregierung und Deutschem Bundestag in Angelegenheiten der Europäischen Union
+- **EUZBBG-2013** Gesetz über die Zusammenarbeit von Bundesregierung und Deutschem Bundestag in Angelegenheiten der Europäischen Union
+- **EUZBLG** Gesetz über die Zusammenarbeit von Bund und Ländern in Angelegenheiten der Europäischen Union
+- **EVG** Ernährungsvorsorgegesetz
+- **EVZStiftG** Gesetz zur Errichtung einer Stiftung "Erinnerung, Verantwortung und Zukunft"
+- **EWGEBeschrAufhG** Gesetz zur Aufhebung von Erwerbsbeschränkungen für Staatsangehörige und Gesellschaften der Mitgliedstaaten der Europäischen Wirtschaftsgemeinschaft
+- **EWGFinBeistG** Gesetz zur Durchführung des mittelfristigen finanziellen Beistands in der Europäischen Wirtschaftsgemeinschaft
+- **EWGRL249-77DG** Gesetz zur Durchführung der Richtlinie des Rates der Europäischen Gemeinschaften vom 22. März 1977 zur Erleichterung der tatsächlichen Ausübung des freien Dienstleistungsverkehrs der Rechtsanwälte
+- **EWGV70-66DG** Gesetz zur Durchführung der Verordnung Nr. 70/66/EWG
+- **EWGVtrG** Gesetz zu den Verträgen vom 25. März 1957 zur Gründung der Europäischen Wirtschaftsgemeinschaft und der Europäischen Atomgemeinschaft
+- **EWIVAG** Gesetz zur Ausführung der EWG-Verordnung über die Europäische wirtschaftliche Interessenvereinigung
+- **EWOÜbkG** Gesetz zu dem Übereinkommen vom 30. Mai 1975 zur Gründung einer Europäischen Weltraumorganisation
+- **EWRAbkAG** Gesetz zur Ausführung des Abkommens vom 2. Mai 1992 über den Europäischen Wirtschaftsraum
+- **EZBAbkG** Gesetz zu dem Abkommen vom 18. September 1998 zwischen der Regierung der Bundesrepublik Deutschland und der Europäischen Zentralbank über den Sitz der Europäischen Zentralbank
+- **EzG-2007** Gesetz über Einmalzahlungen für die Jahre 2005, 2006 und 2007
+- **FABECVtrG** Gesetz zu dem Vertrag vom 2. Dezember 2010 über die Errichtung des Funktionalen Luftraumblocks "Europe Central" zwischen der Bundesrepublik Deutschland, dem Königreich Belgien, der Französischen Republik, dem Großherzogtum Luxemburg, dem Königreich der Niederlande und der Schweizerischen Eidgenossenschaft (FABEC-Vertrag)
+- **FAfG** Gesetz über den Holzabsatzfonds
+- **FAG** Gesetz über Fernmeldeanlagen
+- **FahrlG** Gesetz über das Fahrlehrerwesen
+- **FahrlG-2018** Gesetz über das Fahrlehrerwesen
+- **FahrpersStG** Gesetz über das Fahrpersonal von Kraftfahrzeugen und Straßenbahnen
+- **FamFG** Gesetz über das Verfahren in Familiensachen und in den Angelegenheiten der freiwilligen Gerichtsbarkeit
+- **FamGKG** Gesetz über Gerichtskosten in Familiensachen
+- **FamNamRG** Gesetz zur Neuordnung des Familiennamensrechts
+- **FamRÄndG** Gesetz zur Vereinheitlichung und Änderung familienrechtlicher Vorschriften
+- **FANG** Gesetz zur Neuregelung des Fremdrenten- und Auslandsrentenrechts und zur Anpassung der Berliner Rentenversicherung an die Vorschriften des Arbeiterrentenversicherungs-Neuregelungsgesetzes und des Angestelltenversicherungs-Neuregelungsgesetzes
+- **FAnpG** Gesetz zur Anpassung verschiedener Vorschriften über die Finanzbeziehungen zwischen dem Bund und den Ländern an die Neuregelung der Finanzverfassung
+- **FehmarnbeltqVtrG** Gesetz zu dem Vertrag vom 3. September 2008 zwischen der Bundesrepublik Deutschland und dem Königreich Dänemark über eine Feste Fehmarnbeltquerung
+- **FeiertLohnzG** Gesetz zur Regelung der Lohnzahlung an Feiertagen
+- **FeinGehG** Gesetz über den Feingehalt der Gold- und Silberwaren
+- **FELEG** Gesetz zur Förderung der Einstellung der landwirtschaftlichen Erwerbstätigkeit
+- **FernAbsG** Fernabsatzgesetz
+- **FernstrÜG** Gesetz zu Überleitungsregelungen zum Infrastrukturgesellschaftserrichtungsgesetz und zum Fernstraßen-Bundesamt-Errichtungsgesetz sowie steuerliche Vorschriften
+- **FernUSG** Gesetz zum Schutz der Teilnehmer am Fernunterricht
+- **FeststG** Gesetz über die Feststellung von Vertreibungsschäden und Kriegssachschäden
+- **FeuerschStG-1979** Feuerschutzsteuergesetz
+- **FFG-1979** Gesetz über Maßnahmen zur Förderung des deutschen Films
+- **FFG-2017** Gesetz über Maßnahmen zur Förderung des deutschen Films
+- **FFöG** Gesetz zur Förderung von Frauen und der Vereinbarkeit von Familie und Beruf in der Bundesverwaltung und den Gerichten des Bundes
+- **FGG** Gesetz über die Angelegenheiten der freiwilligen Gerichtsbarkeit
+- **FGG-RG** Gesetz zur Reform des Verfahrens in Familiensachen und in den Angelegenheiten der freiwilligen Gerichtsbarkeit
+- **FGlG** Gesetz zur Gleichstellung stillgelegter und landwirtschaftlich genutzter Flächen
+- **FGO** Finanzgerichtsordnung
+- **FGOÄndG** Gesetz zur Änderung der Finanzgerichtsordnung und anderer Gesetze
+- **FGOÄndG-2** Zweites Gesetz zur Änderung der Finanzgerichtsordnung und anderer Gesetze
+- **FGRVAnwG** Gesetz über die Anwendung der Verordnung (EG) Nr. 1371/2007 des Europäischen Parlaments und des Rates vom 23. Oktober 2007 über die Rechte und Pflichten der Fahrgäste im Eisenbahnverkehr
+- **FideiAuflAufhG** Gesetz zur Aufhebung von Fideikommiss-Auflösungsrecht
+- **FideiAuflG** Gesetz zur Vereinheitlichung der Fideikommißauflösung
+- **FideiErlG** Gesetz über das Erlöschen der Familienfideikommisse und sonstiger gebundener Vermögen
+- **FideiRÄndG** Gesetz zur Änderung von Vorschriften des Fideikommiß- und Stiftungsrechts
+- **FilmAbwG** Gesetz zur Abwicklung und Entflechtung des ehemaligen reichseigenen Filmvermögens
+- **FinÄndG-1967** Gesetz zur Verwirklichung der mehrjährigen Finanzplanung des Bundes, II. Teil
+- **FinAusglG-1969** Gesetz über den Finanzausgleich zwischen Bund und Ländern
+- **FinAusglG-1993** Gesetz über den Finanzausgleich zwischen Bund und Ländern
+- **FinAusglG-2005** Gesetz über den Finanzausgleich zwischen Bund und Ländern
+- **FinAusglVtrAUTG** Gesetz zu dem Vertrag vom 27. November 1961 zwischen der Bundesrepublik Deutschland und der Republik Österreich zur Regelung von Schäden der Vertriebenen, Umsiedler und Verfolgten, über weitere finanzielle Fragen und Fragen aus dem sozialen Bereich (Finanz- und Ausgleichsvertrag)
+- **FinBerG-DDR** Gesetz zur Bereinigung von in der ehemaligen Deutschen Demokratischen Republik zwischen den öffentlichen Haushalten und volkseigenen Unternehmen, Genossenschaften sowie Gewerbetreibenden begründeten Finanzbeziehungen
+- **FinDAG** Gesetz über die Bundesanstalt für Finanzdienstleistungsaufsicht
+- **FinMFöG-2** Gesetz über den Wertpapierhandel und zur Änderung börsenrechtlicher und wertpapierrechtlicher Vorschriften
+- **FinPlG** Erstes Gesetz zur Überleitung der Haushaltswirtschaft des Bundes in eine mehrjährige Finanzplanung
+- **FinStabG** Gesetz zur Überwachung der Finanzstabilität
+- **FinVermStVtrG** Gesetz zu dem Staatsvertrag vom 14. Dezember 2012 über die abschließende Aufteilung des Finanzvermögens gemäß Artikel 22 des Einigungsvertrages zwischen dem Bund, den neuen Ländern und Berlin (Finanzvermögen-Staatsvertrag)
+- **FischDNKVtrG** Gesetz zu dem Abkommen vom 29. Mai 1958 zwischen der Bundesrepublik Deutschland und dem Königreich Dänemark über die gemeinsame Fischerei in der Flensburger Innenförde
+- **FischEtikettG** Gesetz zur Durchführung der Rechtsakte der Europäischen Gemeinschaft über die Etikettierung von Fischen und Fischereierzeugnissen
+- **FischNATÜbkG** Gesetz zu dem Übereinkommen vom 1. Juni 1967 über das Verhalten beim Fischfang im Nordatlantik
+- **FischWiG** Fischwirtschaftsgesetz
+- **FischWiVorschrAufhG** Gesetz zur Aufhebung des Fischwirtschaftsgesetzes und der Fischwirtschaftsverordnung
+- **FKAG** Gesetz zur zusätzlichen Aufsicht über beaufsichtigte Unternehmen eines Finanzkonglomerats
+- **FKAustG** Gesetz zum automatischen Austausch von Informationen über Finanzkonten in Steuersachen
+- **FlaggRG** Gesetz über das Flaggenrecht der Seeschiffe und die Flaggenführung der Binnenschiffe
+- **FlBG** Fleischhygienegesetz
+- **FlG** Fleischgesetz
+- **FlößereiG** Gesetz betreffend die privatrechtlichen Verhältnisse der Flößerei
+- **FlüHG** Flüchtlingshilfegesetz
+- **FlugDaG** Gesetz über die Verarbeitung von Fluggastdaten zur Umsetzung der Richtlinie (EU) 2016/681*
+- **FlugkmkRBÜbkG** Gesetz zu dem Übereinkommen vom 11. Dezember 1987 zwischen den Vereinigten Staaten von Amerika und dem Königreich Belgien, der Bundesrepublik Deutschland, der italienischen Republik, dem Königreich der Niederlande und dem Vereinigten Königreich Großbritannien und Nordirland über Inspektionen in bezug auf den Vertrag zwischen den Vereinigten Staaten von Amerika und der Union der Sozialistischen Sowjetrepubliken über die Beseitigung ihrer Flugkörper mittlerer und kürzerer Reichweite
+- **FluHfSalzbVtrAUTG** Gesetz zu dem Vertrag vom 19. Dezember 1967 zwischen der Bundesrepublik Deutschland und der Republik Österreich über Auswirkungen der Anlage und des Betriebes des Flughafens Salzburg auf das Hoheitsgebiet der Bundesrepublik Deutschland
+- **FluLärmG** Gesetz zum Schutz gegen Fluglärm
+- **FluLärmSchutzVerbG** Gesetz zur Verbesserung des Schutzes vor Fluglärm in der Umgebung von Flugplätzen
+- **FlurbG** Flurbereinigungsgesetz
+- **FluthilfeInsoAntrAussG** Gesetz über die vorübergehende Aussetzung der Insolvenzantragspflicht bei hochwasserbedingter Insolvenz
+- **FluthilfeInsoAntrAussG-2016** Gesetz zur vorübergehenden Aussetzung der Insolvenzantragspflicht bei hochwasser- und starkregenfallbedingter Insolvenz
+- **FlUUG** Gesetz über die Untersuchung von Unfällen und Störungen bei dem Betrieb ziviler Luftfahrzeuge
+- **FMLG** Gesetz zur Vereinfachung des Planverfahrens für Fernmeldelinien
+- **FMStBG** Gesetz zur Beschleunigung und Vereinfachung des Erwerbs von Anteilen an sowie Risikopositionen von Unternehmen des Finanzsektors durch den Fonds "Finanzmarktstabilisierungsfonds - FMS"
+- **FMStFG** Gesetz zur Errichtung eines Finanzmarkt- und eines Wirtschaftsstabilisierungsfonds
+- **FMVtr1965G** Gesetz zu dem Internationalen Fernmeldevertrag vom 12. November 1965
+- **FMVtr1973G** Gesetz zu dem Internationalen Fernmeldevertrag vom 25. Oktober 1973
+- **FoArbVtrG** Gesetz über befristete Arbeitsverträge mit wissenschaftlichem Personal an Forschungseinrichtungen (Artikel 2 des Gesetzes über befristete Arbeitsverträge mit wissenschaftlichem Personal an Hochschulen und Forschungseinrichtungen)
+- **FöGbG** Gesetz über Sonderabschreibungen und Abzugsbeträge im Fördergebiet
+- **FÖJFG** Gesetz zur Förderung eines freiwilligen ökologischen Jahres
+- **FoltÜbkFakProtG** Gesetz zu dem Fakultativprotokoll vom 18. Dezember 2002 zum Übereinkommen gegen Folter und andere grausame, unmenschliche oder erniedrigende Behandlung oder Strafe
+- **ForstSchAusglG** Gesetz zum Ausgleich von Auswirkungen besonderer Schadensereignisse in der Forstwirtschaft
+- **ForumRG** Gesetz zur Errichtung der „Stiftung Forum Recht“
+- **FoVG** Forstvermehrungsgutgesetz
+- **FPfZG** Gesetz über die Familienpflegezeit
+- **FPStatG** Gesetz über die Statistiken der öffentlichen Finanzen und des Personals im öffentlichen Dienst
+- **FrBordÜbkG** Gesetz zu dem Internationalen Freibord-Übereinkommen von 1966 vom 5. April 1966
+- **FreizügG-EU-2004** Gesetz über die allgemeine Freizügigkeit von Unionsbürgern
+- **FRG** Fremdrentengesetz
+- **FrhEntzG** Gesetz über das gerichtliche Verfahren bei Freiheitsentziehungen
+- **FrHfBremGrÄndG** Gesetz über die Grenze des Freihafens Bremen
+- **FrHfDEG-DUG** Gesetz zur Errichtung neuer Freihäfen und zur Änderung des Zollgesetzes
+- **FrHfEmd-KielAufhG** Gesetz zur Aufhebung der Freihäfen Emden und Kiel
+- **FrHfEmdGrÄndG** Gesetz zur Änderung der Grenze des Freihafens Emden
+- **FrHfHbgAufhG** Gesetz zur Aufhebung des Freihafens Hamburg
+- **FrHfHbgZG** Gesetz über die Einbeziehung von Teilen des Freihafens Hamburg in das Zollgebiet
+- **FSaatG** Gesetz über forstliches Saat- und Pflanzgut
+- **FStrAusbauG** Gesetz über den Ausbau der Bundesfernstraßen
+- **FStrBAG** Gesetz zur Errichtung eines Fernstraßen-Bundesamtes
+- **FStrG** Bundesfernstraßengesetz
+- **FStrGÄndG** Gesetz zur Änderung des Bundesfernstraßengesetzes
+- **FStrPrivFinG** Gesetz über den Bau und die Finanzierung von Bundesfernstraßen durch Private
+- **FStrSaarÜblG** Überleitungsgesetz für die Bundesfernstraßen im Saarland
+- **FTEG** Gesetz über Funkanlagen und Telekommunikationsendeinrichtungen
+- **FuAG** Gesetz über die Bereitstellung von Funkanlagen auf dem Markt
+- **FÜG** Gesetz über die Anwendung von Normen für die Übertragung von Fernsehsignalen
+- **FührposGleichberG** Gesetz für die gleichberechtigte Teilhabe von Frauen und Männern an Führungspositionen in der Privatwirtschaft und im öffentlichen Dienst
+- **FunkStörG** Gesetz zur Durchführung der Richtlinien des Rates der Europäischen Gemeinschaften zur Angleichung der Rechtsvorschriften der Mitgliedstaaten über Funkstörungen durch Hochfrequenzgeräte und Funkanlagen
+- **FuttMG** Futtermittelgesetz
+- **FuttMVerbotG** Gesetz über das Verbot des Verfütterns, des innergemeinschaftlichen Verbringens und der Ausfuhr bestimmter Futtermittel
+- **FVG-1971** Gesetz über die Finanzverwaltung
+- **FzgTeilÜbkG** Gesetz zu dem Übereinkommen vom 20. März 1958 über die Annahme einheitlicher Bedingungen für die Genehmigung der Ausrüstungsgegenstände und Teile von Kraftfahrzeugen und über die gegenseitige Anerkennung der Genehmigung
+- **FZulG** Gesetz zur steuerlichen Förderung von Forschung und Entwicklung
+- **G-115** Gesetz zur Ausführung von Artikel 115 des Grundgesetzes
+- **G10** Gesetz zur Beschränkung des Brief-, Post- und Fernmeldegeheimnisses
+- **G10-2001** Gesetz zur Beschränkung des Brief-, Post- und Fernmeldegeheimnisses
+- **G131** Gesetz zur Regelung der Rechtsverhältnisse der unter Artikel 131 des Grundgesetzes fallenden Personen
+- **G131ÄndG-1** Erstes Gesetz zur Änderung des Gesetzes zur Regelung der Rechtsverhältnisse der unter Artikel 131 des Grundgesetzes fallenden Personen
+- **G131ÄndG-2** Zweites Gesetz zur Änderung des Gesetzes zur Regelung der Rechtsverhältnisse der unter Artikel 131 des Grundgesetzes fallenden Personen
+- **G131ÄndG-3** Drittes Gesetz zur Änderung des Gesetzes zur Regelung der Rechtsverhältnisse der unter Artikel 131 des Grundgesetzes fallenden Personen
+- **G131ÄndG-4** Viertes Gesetz zur Änderung des Gesetzes zur Regelung der Rechtsverhältnisse der unter Artikel 131 des Grundgesetzes fallenden Personen
+- **GAD** Gesetz über den Auswärtigen Dienst
+- **GAL** Gesetz über eine Altershilfe für Landwirte
+- **GALÄndG** Gesetz zur Änderung des Gesetzes über eine Altershilfe für Landwirte
+- **GALÄndG-3** Drittes Gesetz zur Änderung und Ergänzung des Gesetzes über eine Altershilfe für Landwirte
+- **GALÄndG-4** Viertes Gesetz zur Änderung und Ergänzung des Gesetzes über eine Altershilfe für Landwirte
+- **GALÄndG-6** Sechstes Gesetz zur Änderung und Ergänzung des Gesetzes über eine Altershilfe für Landwirte
+- **GALÄndG-7** Gesetz über die laufende Anpassung der Altersgelder in der Altershilfe für Landwirte
+- **GALNReglG** Gesetz zur Neuregelung der Altershilfe für Landwirte
+- **GasgeräteDG** Gesetz zur Durchführung der Verordnung (EU) 2016/426 des Europäischen Parlaments und des Rates vom 9. März 2016 über Geräte zur Verbrennung gasförmiger Brennstoffe und zur Aufhebung der Richtlinie 2009/142/EG
+- **GasÖlVerwLwG** Gesetz über die Verwendung von Gasöl durch Betriebe der Landwirtschaft
+- **GasÖlVerwLwGAufhG** Gesetz zur Aufhebung des Landwirtschafts-Gasölverwendungsgesetzes
+- **GastG** Gaststättengesetz
+- **GastStG** Gaststaatgesetz
+- **GATTAbkProt1967G** Gesetz zu dem Genfer Protokoll von 1967 zum Allgemeinen Zoll- und Handelsabkommen, dem Übereinkommen vom 30. Juni 1967 zur Durchführung von Artikel VI des Allgemeinen Zoll- und Handelsabkommen und dem Abkommen vom 30. Juni 1967 zwischen der Europäischen Wirtschaftsgemeinschaft sowie deren Mitgliedstaaten und der Schweizerischen Eidgenossenschaft über Uhrmacherwaren
+- **GATTG** Gesetz über das Protokoll von Torquay vom 21. April 1951 und über den Beitritt der Bundesrepublik Deutschland zum Allgemeinen Zoll- und Handelsabkommen
+- **GBBerG-1993** Grundbuchbereinigungsgesetz
+- **GBlnG** Gesetz über das Gerichtswesen in Berlin
+- **GBMaßnG** Gesetz über Maßnahmen auf dem Gebiete des Grundbuchwesens
+- **GBO** Grundbuchordnung
+- **GDolmG** Gesetz über die allgemeine Beeidigung von gerichtlichen Dolmetschern
+- **GDtWahlVDVtrG** Gesetz zu dem Vertrag vom 3. August 1990 zur Vorbereitung und Durchführung der ersten gesamtdeutschen Wahl des Deutschen Bundestages zwischen der Bundesrepublik Deutschland und der Deutschen Demokratischen Republik sowie dem Änderungsvertrag vom 20. August 1990
+- **GebBeschG** Gesetz zur Behandlung von Gebührenbescheiden der Behörden der Deutschen Demokratischen Republik für die Genehmigung der Verbringung von Kraftfahrzeugen und anderen Waren im grenzüberschreitenden Reiseverkehr
+- **GebrMG** Gebrauchsmustergesetz
+- **GebrMGÄndG** Gesetz zur Änderung des Gebrauchsmustergesetzes
+- **GebVersÜblG** Gesetz zur Überleitung landesrechtlicher Gebäudeversicherungsverhältnisse
+- **GefahrgutG** Gesetz über die Beförderung gefährlicher Güter
+- **GEinhG** Gesetz zur Wiederherstellung der Gesetzeseinheit auf dem Gebiet des bürgerlichen Rechts
+- **GeistwStiftG** Gesetz zur Errichtung einer Stiftung Deutsche Geisteswissenschaftliche Institute im Ausland, Bonn
+- **GeldwG** Gesetz über das Aufspüren von Gewinnen aus schweren Straftaten
+- **GeldWNOG** Gesetz über den Erlaß von Rechtsverordnungen auf dem Gebiet der Neuordnung des Geldwesens und über die Neufestsetzung des Nennkapitals von Geldinstituten in der Rechtsform von Kapitalgesellschaften
+- **GemFinRefG** Gesetz zur Neuordnung der Gemeindefinanzen
+- **GemUSchuldG** Gesetz über die Umwandlung kurzfristiger Inlandsschulden der Gemeinden
+- **GemVerkVerbG** Gesetz über eine Untersuchung von Maßnahmen zur Verbesserung der Verkehrsverhältnisse der Gemeinden
+- **GenBeschlG** Gesetz zur Beschleunigung von Genehmigungsverfahren
+- **GenDG** Gesetz über genetische Untersuchungen bei Menschen
+- **GenfRKAbkZProtI-IIG** Gesetz zu den Zusatzprotokollen I und II zu den Genfer Rotkreuz-Abkommen von 1949
+- **GenfRKAbkZProtIIIG** Gesetz zu dem Zusatzprotokoll vom 8. Dezember 2005 zu den Genfer Abkommen vom 12. August 1949 über die Annahme eines zusätzlichen Schutzzeichens (Protokoll III)
+- **GenG** Gesetz betreffend die Erwerbs- und Wirtschaftsgenossenschaften
+- **GenGÄndG** Gesetz zur Änderung des Gesetzes betreffend die Erwerbs- und Wirtschaftsgenossenschaften
+- **GenGÄndG-1933** Gesetz zur Änderung des Genossenschaftsgesetzes
+- **GenGÄndG-1934** Gesetz zur Änderung des Genossenschaftsgesetzes
+- **GenGÄndG-1973** Gesetz zur Änderung des Gesetzes betreffend die Erwerbs- und Wirtschaftsgenossenschaften
+- **GenKassG** Gesetz über die Deutsche Genossenschaftsbank
+- **GenTG** Gesetz zur Regelung der Gentechnik
+- **GeoZG** Gesetz über den Zugang zu digitalen Geodaten
+- **GerEintZustG** Gesetz über die Zuständigkeit der Gerichte bei Änderungen der Gerichtseinteilung
+- **GerRVG** Gesetz über Rechtsverordnungen im Bereich der Gerichtsbarkeit
+- **GeschGehG** Gesetz zum Schutz von Geschäftsgeheimnissen
+- **GeschlKrG** Gesetz zur Bekämpfung der Geschlechtskrankheiten
+- **GeschmMG** Gesetz betreffend das Urheberrecht an Mustern und Modellen
+- **GeschmMG-2004** Gesetz über den rechtlichen Schutz von Design
+- **GesundZAAbkFRAG** Gesetz zu dem Rahmenabkommen vom 22. Juli 2005 zwischen der Regierung der Bundesrepublik Deutschland und der Regierung der Französischen Republik über die grenzüberschreitende Zusammenarbeit im Gesundheitsbereich und zu der Verwaltungsvereinbarung vom 9. März 2006 zwischen dem Bundesministerium für Gesundheit der Bundesrepublik Deutschland und dem Minister für Gesundheit und Solidarität der Französischen Republik über die Durchführungsmodalitäten des Rahmenabkommens vom 22. Juli 2005 über die grenzüberschreitende Zusammenarbeit im Gesundheitsbereich
+- **GesWAbkDDRG** Gesetz zu dem Abkommen vom 25. April 1974 zwischen der Regierung der Bundesrepublik Deutschland und der Regierung der Deutschen Demokratischen Republik auf dem Gebiet des Gesundheitswesens
+- **GesWVereinhG** Gesetz über die Vereinheitlichung des Gesundheitswesens
+- **GesWZustG** Gesetz über den Übergang von Zuständigkeiten auf dem Gebiete des Rechts des Gesundheitswesens
+- **GetrG** Gesetz über den Verkehr mit Getreide und Futtermitteln
+- **GewBezG** Gesetz über die Gewichtsbezeichnung an schweren, auf Schiffen beförderten Frachtstücken
+- **GewebeG** Gesetz über Qualität und Sicherheit von menschlichen Geweben und Zellen
+- **GewO** Gewerbeordnung
+- **GewOÄnd-GewZRegG** Gesetz zur Änderung der Gewerbeordnung und über die Einrichtung eines Gewerbezentralregisters
+- **GewOÄndG-1953** Gesetz zur Änderung der Titel I bis IV, VII und X der Gewerbeordnung
+- **GewOÄndG-1960** Viertes Bundesgesetz zur Änderung der Gewerbeordnung
+- **GewOÄndG-1972** Gesetz zur Änderung der Gewerbeordnung
+- **GewOTit4ÄndG** Gesetz zur Änderung des Titels IV der Gewerbeordnung
+- **GewOTit4uaÄndG** Gesetz zur Änderung des Titels IV und anderer Vorschriften der Gewerbeordnung
+- **GewRAufhG** Gesetz über die Aufhebung kriegsbedingter gewerberechtlicher Vorschriften
+- **GewRSchSaarEinglG** Gesetz über die Eingliederung des Saarlandes auf dem Gebiet des gewerblichen Rechtsschutzes
+- **GewRSchÜblG-5** Fünftes Gesetz zur Änderung und Überleitung von Vorschriften auf dem Gebiet des gewerblichen Rechtsschutzes
+- **GewRSchÜblG-6** Sechstes Gesetz zur Änderung und Überleitung von Vorschriften auf dem Gebiet des gewerblichen Rechtsschutzes
+- **GewSchG** Gesetz zum zivilrechtlichen Schutz vor Gewalttaten und Nachstellungen
+- **GewStG** Gewerbesteuergesetz
+- **GFG** Gesetz über die Förderung des wissenschaftlichen Nachwuchses an den Hochschulen
+- **GFlHG** Geflügelfleischhygienegesetz
+- **GFlHG-1996** Geflügelfleischhygienegesetz
+- **GG** Grundgesetz für die Bundesrepublik Deutschland
+- **GGArt104aAbs4SLG** Gesetz über Finanzhilfen des Bundes nach Artikel 104a Abs. 4 des Grundgesetzes an das Saarland
+- **GGArt29Abs6G** Gesetz über das Verfahren bei Volksentscheid, Volksbegehren und Volksbefragung nach Artikel 29 Abs. 6 des Grundgesetzes
+- **GGArt29Abs7G** Gesetz über das Verfahren bei sonstigen Änderungen des Gebietsbestandes der Länder nach Artikel 29 Abs. 7 des Grundgesetzes
+- **GGArt45cG** Gesetz über die Befugnisse des Petitionsausschusses des Deutschen Bundestages
+- **GGArt91cÄndVtr1G** Gesetz zum Ersten IT-Änderungsstaatsvertrag
+- **GGArt91cVtrG** Gesetz zum Vertrag über die Errichtung des IT-Planungsrats und über die Grundlagen der Zusammenarbeit beim Einsatz der Informationstechnologie in den Verwaltungen von Bund und Ländern – Vertrag zur Ausführung von Artikel 91c GG (siehe: GGArt91cVtr)
+- **GHfBetrG** Gesetz über die Schaffung eines besonderen Arbeitgebers für Hafenarbeiter (Gesamthafenbetrieb)
+- **GII041138** Gesetz zu dem Übereinkommen vom 9. September 2002 über die Vorrechte und Immunitäten des Internationalen Strafgerichtshofs
+- **GII041181** Gesetz zu dem Internationalen Maasübereinkommen vom 3. Dezember 2002
+- **GII041202** Gesetz zu dem Übereinkommen vom 14. Oktober 2003 über die Beteiligung der Tschechischen Republik, der Republik Estland, der Republik Zypern, der Republik Lettland, der Republik Litauen, der Republik Ungarn, der Republik Malta, der Republik Polen, der Republik Slowenien und der Slowakischen Republik am Europäischen Wirtschaftsraum
+- **GII041730** Gesetz zu dem Abkommen vom 18. November 2002 zur Gründung einer Assoziation zwischen der Europäischen Gemeinschaft und ihren Mitgliedern einerseits und der Republik Chile andererseits
+- **GII050699** Gesetz zu dem Vertrag vom 28. August 1997 zwischen der Bundesrepublik Deutschland und der Kirgisischen Republik über die Förderung und den gegenseitigen Schutz von Kapitalanlagen
+- **GII050708** Gesetz zu dem Vertrag vom 30. Oktober 2003 zwischen der Bundesrepublik Deutschland und der Republik Angola über die Förderung und den gegenseitigen Schutz von Kapitalanlagen
+- **GII050716** Gesetz zu dem Vertrag vom 28. März 2000 zwischen der Bundesrepublik Deutschland und der Bundesrepublik Nigeria über die Förderung und den gegenseitigen Schutz von Kapitalanlagen
+- **GII050725** Gesetz zu dem Vertrag vom 17. Oktober 2003 zwischen der Bundesrepublik Deutschland und der Republik Guatemala über die Förderung und den gegenseitigen Schutz von Kapitalanlagen
+- **GII050732** Gesetz zu dem Abkommen vom 1. Dezember 2003 zwischen der Bundesrepublik Deutschland und der Volksrepublik China über die Förderung und den gegenseitigen Schutz von Kapitalanlagen
+- **GII050743** Gesetz zu dem Vertrag vom 19. Januar 2004 zwischen der Bundesrepublik Deutschland und der Demokratischen Bundesrepublik Äthiopien über die Förderung und den gegenseitigen Schutz von Kapitalanlagen
+- **GII050778** Gesetz zu dem OCCAR-Geheimschutzübereinkommen vom 24. September 2004
+- **GII061362** Gesetz zu dem Abkommen vom 26. Oktober 2004 zwischen der Europäischen Union, der Europäischen Gemeinschaft und der Schweizerischen Eidgenossenschaft über die Assoziierung dieses Staates bei der Umsetzung, Anwendung und Entwicklung des Schengen-Besitzstands
+- **GII081222** Gesetz zu dem Fakultativprotokoll vom 25. Mai 2000 zum Übereinkommen über die Rechte des Kindes betreffend den Verkauf von Kindern, die Kinderprostitution und die Kinderpornographie
+- **GII090932** Gesetz zu dem Internationalen Übereinkommen vom 20. Dezember 2006 zum Schutz aller Personen vor dem Verschwindenlassen
+- **GII101381** Gesetz zu dem Abkommen vom 19. März 2010 zwischen der Regierung der Bundesrepublik Deutschland und der Regierung von Anguilla über den steuerlichen Informationsaustausch
+- **GII121378** Gesetz zum Vorschlag für einen Beschluss des Rates zur Festlegung eines Mehrjahresrahmens (2013 - 2017) für die Agentur der Europäischen Union für Grundrechte
+- **GII170002** Gesetz zu dem Abkommen vom 31. Mai 2013 zwischen der Regierung der Bundesrepublik Deutschland und dem Ministerrat der Republik Albanien über die Zusammenarbeit im Sicherheitsbereich
+- **GII170016** Gesetz zu dem Abkommen vom 22. März 2016 zwischen der Regierung der Bundesrepublik Deutschland und der Regierung der Republik Serbien über die Zusammenarbeit im Sicherheitsbereich
+- **GII801261** Gesetz zu dem Abkommen vom 15. März 1978 zwischen der Bundesrepublik Deutschland und Mauritius zur Vermeidung der Doppelbesteuerung auf dem Gebiet der Steuern vom Einkommen und vom Vermögen und zur Förderung des Handels und der Investitionstätigkeit zwischen den beiden Staaten
+- **GKG** Gerichtskostengesetz
+- **GKG-2004** Gerichtskostengesetz
+- **GKV-SolG** Gesetz zur Stärkung der Solidarität in der gesetzlichen Krankenversicherung
+- **GKVBegrG-2003** Gesetz zur Begrenzung der Ausgaben der gesetzlichen Krankenversicherung für das Jahr 2003
+- **GKVFG** Gesetz zur Stärkung der Finanzgrundlagen der gesetzlichen Krankenversicherung in den neuen Ländern
+- **GKVNOG-1** Erstes Gesetz zur Neuordnung von Selbstverwaltung und Eigenverantwortung in der gesetzlichen Krankenversicherung
+- **GKVNOG-2** Zweites Gesetz zur Neuordnung von Selbstverwaltung und Eigenverantwortung in der gesetzlichen Krankenversicherung
+- **GKVRefG-2000** Gesetz zur Reform der gesetzlichen Krankenversicherung ab dem Jahr 2000
+- **GKVStabG-2003** Gesetz zur Stabilisierung der Beitragssätze in der gesetzlichen Krankenversicherung im Jahre 2003
+- **GlAufrG-1957** Gesetz über den Aufruf der Gläubiger der I. G. Farbenindustrie Aktiengesellschaft in Abwicklung
+- **GleichberG** Gesetz über die Gleichberechtigung von Mann und Frau auf dem Gebiet des bürgerlichen Rechts
+- **GleichberG-2** Gesetz zur Durchsetzung der Gleichberechtigung von Frauen und Männern
+- **GmbHG** Gesetz betreffend die Gesellschaften mit beschränkter Haftung
+- **GmbHGuaÄndG** Gesetz zur Änderung des Gesetzes betreffend die Gesellschaften mit beschränkter Haftung und anderer handelsrechtlicher Vorschriften
+- **GNG** Gesetz über die Neuordnung zentraler Einrichtungen des Gesundheitswesens
+- **GNotKG** Gesetz über Kosten der freiwilligen Gerichtsbarkeit für Gerichte und Notare
+- **GoldfrUmrG** Gesetz zu den Protokollen vom 19. November 1976 und vom 5. Juli 1978 über die Ersetzung des Goldfrankens durch das Sonderziehungsrecht des Internationalen Währungsfonds sowie zur Regelung der Umrechnung des Goldfrankens in haftungsrechtlichen Bestimmungen
+- **GoldHypAbkCHEG** Gesetz über das Abkommen zwischen dem Deutschen Reiche und der Schweizerischen Eidgenossenschaft betreffend schweizerische Goldhypotheken in Deutschland und gewisse Arten von Frankenforderungen an deutsche Schuldner
+- **GoldHypZusAbkGCHEG** Gesetz über das Zusatzabkommen zum Abkommen vom 6. Dezember 1920 zwischen dem Deutschen Reiche und der Schweizerischen Eidgenossenschaft betreffend schweizerische Goldhypotheken in Deutschland und gewisse Arten von Frankenforderungen an deutsche Schuldner
+- **GPatG** Gesetz über das Gemeinschaftspatent und zur Änderung patentrechtlicher Vorschriften
+- **GPatG-2** Gesetz zu der Vereinbarung vom 21. Dezember 1989 über Gemeinschaftspatente und zu dem Protokoll vom 21. Dezember 1989 über eine etwaige Änderung der Bedingungen für das Inkrafttreten der Vereinbarung über Gemeinschaftspatente sowie zur Änderung patentrechtlicher Vorschriften
+- **GPSG** Gesetz über technische Arbeitsmittel und Verbraucherprodukte
+- **GrAbfErlPolAbkG** Gesetz zu dem Abkommen vom 29. Juli 1992 zwischen der Bundesrepublik Deutschland und der Republik Polen über Erleichterungen der Grenzabfertigung
+- **GrAbfertAUTVtrG-1967** Gesetz zu dem Vertrag vom 31. Mai 1967 zwischen der Bundesrepublik Deutschland und der Republik Österreich über zoll- und paßrechtliche Fragen die sich an der deutsch-österreichischen Grenze bei Staustufen und Grenzbrücken ergeben
+- **GrAbfertCESVtrG** Gesetz zu dem Vertrag vom 19. Mai 1995 zwischen der Bundesrepublik Deutschland und der Tschechischen Republik über Erleichterungen der Grenzabfertigung im Eisenbahn-, Straßen- und Schiffsverkehr
+- **GrAbfertCHEAbkG** Gesetz zu dem Abkommen vom 1. Juni 1961 zwischen der Bundesrepublik Deutschland und der Schweizerischen Eidgenossenschaft über die Errichtung nebeneinanderliegender Grenzabfertigungsstellen und die Grenzabfertigung in Verkehrsmitteln während der Fahrt
+- **GrAbfertDNKVtrG** Gesetz zu dem Vertrag vom 30. März 1967 zwischen der Bundesrepublik Deutschland und dem Königreich Dänemark über Zollerleichterungen im kleinen Grenzverkehr
+- **GrAbfertFRAAbkG** Gesetz über das Abkommen vom 18. April 1958 zwischen der Bundesrepublik Deutschland und der Französischen Republik über nebeneinanderliegende nationale Grenzabfertigungsstellen und Gemeinschafts- oder Betriebswechselbahnhöfe an der deutsch-französischen Grenze
+- **GrAbfertLUXAbkG** Gesetz zu dem Abkommen vom 16. Februar 1962 zwischen der Bundesrepublik Deutschland und dem Großherzogtum Luxemburg über die Zusammenlegung der Grenzabfertigung und über die Errichtung von Gemeinschafts- oder Betriebswechselbahnhöfen an der deutsch-luxemburgischen Grenze
+- **GrAbfertNLDAbkG** Gesetz zu dem Abkommen vom 30. Mai 1958 zwischen der Bundesrepublik Deutschland und dem Königreich der Niederlande über die Zusammenlegung der Grenzabfertigung und über die Einrichtung von Gemeinschafts- oder Betriebswechselbahnhöfen an der deutsch-niederländischen Grenze
+- **GrAbfertVtrAUT1962G** Gesetz zu dem Vertrag vom 6. September 1962 zwischen der Bundesrepublik Deutschland und der Republik Österreich über Zollerleichterungen im kleinen Grenzverkehr und im Durchgangsverkehr
+- **GrAbfertVtrAUT1967ÄndVtrG** Gesetz zu dem Vertrag vom 27. April 1983 zur Änderung des Vertrags vom 31. Mai 1967 zwischen der Bundesrepublik Deutschland und der Republik Österreich über zoll- und paßrechtliche Fragen, die sich an der deutsch-österreichischen Grenze bei Staustufen und Grenzbrücken ergeben
+- **GräbG** Gesetz über die Erhaltung der Gräber der Opfer von Krieg und Gewaltherrschaft
+- **GräbGÄndG** Gesetz zur Änderung des Gesetzes über die Erhaltung der Gräber der Opfer von Krieg und Gewaltherrschaft (Gräbergesetz)
+- **GrBerichtVtrNLD1G** Gesetz zu dem Vertrag vom 30. Oktober 1980 zwischen der Bundesrepublik Deutschland und dem Königreich der Niederlande über Grenzberichtigungen
+- **GrBerichtVtrNLD2G** Gesetz zu dem Vertrag vom 20. Oktober 1992 zwischen der Bundesrepublik Deutschland und dem Königreich der Niederlande über Grenzberichtigungen (Zweiter Grenzberichtigungsvertrag)
+- **GrBerKrAC-MalVtrBELG** Gesetz zu dem Vertrag vom 26. März 1982 zwischen der Bundesrepublik Deutschland und dem Königreich Belgien über die Berichtigung der deutsch-belgischen Grenze im Bereich der regulierten Grenzgewässer Breitenbach und Schwarzbach, Kreise Aachen und Malmedy
+- **GrBrückAbk2000POLG** Gesetz zu dem Abkommen vom 21. November 2000 zwischen der Regierung der Bundesrepublik Deutschland und der Regierung der Republik Polen über den Bau und die Erhaltung von Grenzbrücken im nachgeordneten Straßennetz
+- **GrBrückAbkCESG** Gesetz zu dem Vertrag vom 13. Juli 1995 zwischen der Bundesrepublik Deutschland und der Tschechischen Republik über den Bau einer Grenzbrücke an der gemeinsamen Staatsgrenze im Zuge der Europastraße E 49
+- **GrBrückAbkPOLG** Gesetz zu dem Abkommen vom 20. März 1995 zwischen der Bundesrepublik Deutschland und der Republik Polen über die Erhaltung der Grenzbrücken im Zuge der deutschen Bundesfernstraßen und der polnischen Landesstraßen an der deutsch-polnischen Grenze
+- **GrBrückPerlAbkLUXG** Gesetz zu dem Abkommen vom 18. April 1994 zwischen der Bundesrepublik Deutschland und dem Großherzogtum Luxemburg über den Autobahnzusammenschluß und den Bau einer Grenzbrücke über die Mosel im Raum Perl und Schengen
+- **GrBrückVtr2000CZEG** Gesetz zu dem Vertrag vom 12. September 2000 zwischen der Bundesrepublik Deutschland und der Tschechischen Republik über den Zusammenschluss der deutschen Autobahn A 17 und der tschechischen Autobahn D 8 an der gemeinsamen Staatsgrenze durch Errichtung einer Grenzbrücke
+- **GrdstEÜVpG** Gesetz über die Übertragung des Eigentums und die Verpachtung volkseigener landwirtschaftlich genutzter Grundstücke an Genossenschaften, Genossenschaftsmitglieder und andere Bürger
+- **GrdstVG** Gesetz über Maßnahmen zur Verbesserung der Agrarstruktur und zur Sicherung land- und forstwirtschaftlicher Betriebe
+- **GrdstVV** Grundstücksverkehrsordnung
+- **GrenzgNLDAG** Ausführungsgesetz zum Zusatzprotokoll vom 13. März 1980 zum Abkommen vom 16. Juni 1959 zwischen der Bundesrepublik Deutschland und dem Königreich der Niederlande zur Vermeidung der Doppelbesteuerung auf dem Gebiete der Steuern vom Einkommen und vom Vermögen sowie verschiedener sonstiger Steuern und zur Regelung anderer Fragen auf steuerlichem Gebiete
+- **GrenzgNLDZusProt3G** Gesetz zu dem Dritten Zusatzprotokoll vom 4. Juni 2004 zum Abkommen vom 16. Juni 1959 zwischen der Bundesrepublik Deutschland und dem Königreich der Niederlande zur Vermeidung der Doppelbesteuerung auf dem Gebiete der Steuern vom Einkommen und vom Vermögen sowie verschiedener sonstiger Steuern und zur Regelung anderer Fragen auf steuerlichem Gebiete
+- **GrenzVerkAUTVtrG-1** Gesetz zu dem Vertrag vom 17. Februar 1966 zwischen der Bundesrepublik Deutschland und der Republik Österreich über den Durchgangsverkehr auf der Roßfeldstraße
+- **GrenzVerkAUTVtrG-2** Gesetz zu dem Vertrag vom 17. Februar 1966 zwischen der Bundesrepublik Deutschland und der Republik Österreich über den Durchgangsverkehr auf den Straßen an der Walchen Ache und am Pittenbach sowie zum Bächen- und Rißtal im deutschen und österreichischen Grenzgebiet
+- **GrenzVtrPOLG** Gesetz zu dem Vertrag vom 14. November 1990 zwischen der Bundesrepublik Deutschland und der Republik Polen über die Bestätigung der zwischen ihnen bestehenden Grenze
+- **GrEStG-1983** Grunderwerbsteuergesetz
+- **GRG** Gesetz zur Strukturreform im Gesundheitswesen
+- **GrStG-1973** Grundsteuergesetz
+- **GrStG-29ÄndG** Gesetz über die Änderung des § 29 des Grundsteuergesetzes
+- **GrundVtrG** Gesetz zu dem Vertrag vom 21. Dezember 1972 zwischen der Bundesrepublik Deutschland und der Deutschen Demokratischen Republik über die Grundlagen der Beziehungen zwischen der Bundesrepublik Deutschland und der Deutschen Demokratischen Republik
+- **GSG** Gesetz zur Sicherung und Strukturverbesserung der gesetzlichen Krankenversicherung
+- **GSGÄndG-2** Zweites Gesetz zur Änderung des Gerätesicherheitsgesetzes
+- **GSiG** Gesetz über eine bedarfsorientierte Grundsicherung im Alter und bei Erwerbsminderung
+- **GTNSitzAbkG** Gesetz zu dem Abkommen vom 29. Juni 2012 zwischen der Bundesrepublik Deutschland und dem Globalen Treuhandfonds für Nutzpflanzenvielfalt über den Sitz des Globalen Treuhandfonds für Nutzpflanzenvielfalt
+- **GüFG** Gesetz über den Güterfernverkehr mit Kraftfahrzeugen
+- **GÜG** Gesetz zur Überwachung des Verkehrs mit Grundstoffen, die für die unerlaubte Herstellung von Betäubungsmitteln mißbraucht werden können
+- **GÜG-2008** Gesetz zur Überwachung des Verkehrs mit Grundstoffen, die für die unerlaubte Herstellung von Betäubungsmitteln missbraucht werden können
+- **GüKG** Güterkraftverkehrsgesetz
+- **GüKG-1998** Güterkraftverkehrsgesetz
+- **GüKGÄndG-4** Viertes Gesetz zur Änderung des Güterkraftverkehrsgesetzes
+- **GüKGrenzStatG** Gesetz über eine Statistik des grenzüberschreitenden Güterkraftverkehrs
+- **GUG** Gesetz über die Unterbrechung von Gesamtvollstreckungsverfahren
+- **GVFG** Gesetz über Finanzhilfen des Bundes zur Verbesserung der Verkehrsverhältnisse der Gemeinden
+- **GVfVereinfG** Gesetz zur Vereinfachung und Beschleunigung gerichtlicher Verfahren
+- **GVG** Gerichtsverfassungsgesetz
+- **GVG-DDR** Gesetz über die Verfassung der Gerichte der Deutschen Demokratischen Republik
+- **GVGEG** Einführungsgesetz zum Gerichtsverfassungsgesetz
+- **GVGEGÄndG** Gesetz zur Änderung des Einführungsgesetzes zum Gerichtsverfassungsgesetz
+- **GvKostG** Gesetz über Kosten der Gerichtsvollzieher
+- **GVollzKostG** Gesetz über Kosten der Gerichtsvollzieher
+- **GWB** Gesetz gegen Wettbewerbsbeschränkungen
+- **GWD-ZDDRglG** Gesetz zur Regelung der Dauer des Grundwehrdienstes und des Zivildienstes
+- **GwG** Gesetz über das Aufspüren von Gewinnen aus schweren Straftaten
+- **GwG-2008** Gesetz über das Aufspüren von Gewinnen aus schweren Straftaten
+- **GwG-2017** Gesetz über das Aufspüren von Gewinnen aus schweren Straftaten
+- **HaagÜbkAG** Gesetz zur Ausführung des Haager Übereinkommens vom 15. November 1965 über die Zustellung gerichtlicher und außergerichtlicher Schriftstücke im Ausland in Zivil- oder Handelssachen und des Haager Übereinkommens vom 18. März 1970 über die Beweisaufnahme im Ausland in Zivil- oder Handelssachen
+- **HaftPflG** Haftpflichtgesetz
+- **HAG** Heimarbeitsgesetz
+- **HalblSchG** Gesetz über den Schutz der Topographien von mikroelektronischen Halbleitererzeugnissen
+- **HAuslG** Gesetz über die Rechtsstellung heimatloser Ausländer im Bundesgebiet
+- **HBauStatG** Gesetz über die Statistik der Bautätigkeit im Hochbau und die Fortschreibung des Wohnungsbestandes
+- **HBegleitG-1984** Gesetz über Maßnahmen zur Entlastung der öffentlichen Haushalte und zur Stabilisierung der Finanzentwicklung in der Rentenversicherung sowie über die Verlängerung der Investitionshilfeabgabe
+- **HBeglG-1991** Gesetz über Maßnahmen zur Entlastung der öffentlichen Haushalte sowie über strukturelle Anpassungen in dem in Artikel 3 des Einigungsvertrages genannten Gebiet
+- **HdGStiftG** Gesetz zur Errichtung einer Stiftung "Haus der Geschichte der Bundesrepublik Deutschland" (Artikel 1 d. Gesetzes zur Errichtung einer Stiftung "Haus der Geschichte der Bundesrepublik Deutschland")
+- **HdlKlG** Handelsklassengesetz
+- **HdlKlHolzG** Gesetz über gesetzliche Handelsklassen für Rohholz
+- **HdlStatG** Gesetz über die Statistik im Handel und Gastgewerbe
+- **HdlStatG-2001** Gesetz über die Statistik im Handel und Gastgewerbe
+- **HdlVertrG** Gesetz zur Änderung des Handelsgesetzbuchs (Recht der Handelsvertreter)
+- **HebG-1985** Gesetz über den Beruf der Hebamme und des Entbindungspflegers
+- **HebG-2020** Gesetz über das Studium und den Beruf von Hebammen
+- **HeilMWerbG** Gesetz über die Werbung auf dem Gebiete des Heilwesens
+- **HeilprG** Gesetz über die berufsmäßige Ausübung der Heilkunde ohne Bestallung
+- **HeimG** Heimgesetz
+- **HeimGÄndG-1** Erstes Gesetz zur Änderung des Heimgesetzes
+- **HeimGÄndG-2** Zweites Gesetz zur Änderung des Heimgesetzes
+- **HeizkZG** Gesetz zur Gewährung eines einmaligen Heizkostenzuschusses
+- **HeuerVtrÜbkG** Gesetz betreffend das Internationale Übereinkommen über den Heuervertrag der Schiffsleute
+- **HfreqBetrG** Gesetz über den Betrieb von Hochfrequenzgeräten
+- **HfzHvzVStG** Gesetz zur Änderung des Hauptfeststellungszeitraums für die wirtschaftlichen Einheiten des Betriebsvermögens sowie des Hauptveranlagungszeitraums für die Vermögensteuer
+- **HfzHvzVStG-1993** Gesetz zur Änderung des Hauptfeststellungszeitraums für die wirtschaftlichen Einheiten des Betriebsvermögens
+- **HG-1994** Gesetz über die Feststellung des Bundeshaushaltsplans für das Haushaltsjahr 1994
+- **HG-1995** Gesetz über die Feststellung des Bundeshaushaltsplans für das Haushaltsjahr 1995
+- **HG-1996** Gesetz über die Feststellung des Bundeshaushaltsplans für das Haushaltsjahr 1996
+- **HG-1997** Gesetz über die Feststellung des Bundeshaushaltsplans für das Haushaltsjahr 1997
+- **HG-1998** Gesetz über die Feststellung des Bundeshaushaltsplans für das Haushaltsjahr 1998
+- **HG-1999** Gesetz über die Feststellung des Bundeshaushaltsplans für das Haushaltsjahr 1999
+- **HG-2000** Gesetz über die Feststellung des Bundeshaushaltsplans für das Haushaltsjahr 2000
+- **HG-2001** Gesetz über die Feststellung des Bundeshaushaltsplans für das Haushaltsjahr 2001
+- **HG-2002** Gesetz über die Feststellung des Bundeshaushaltsplans für das Haushaltsjahr 2002
+- **HG-2003** Gesetz über die Feststellung des Bundeshaushaltsplans für das Haushaltsjahr 2003
+- **HG-2004** Gesetz über die Feststellung des Bundeshaushaltsplans für das Haushaltsjahr 2004
+- **HG-2005** Gesetz über die Feststellung des Bundeshaushaltsplans für das Haushaltsjahr 2005
+- **HG-2006** Gesetz über die Feststellung des Bundeshaushaltsplans für das Haushaltsjahr 2006
+- **HG-2007** Gesetz über die Feststellung des Bundeshaushaltsplans für das Haushaltsjahr 2007
+- **HG-2008** Gesetz über die Feststellung des Bundeshaushaltsplans für das Haushaltsjahr 2008
+- **HG-2009** Gesetz über die Feststellung des Bundeshaushaltsplans für das Haushaltsjahr 2009
+- **HG-2010** Gesetz über die Feststellung des Bundeshaushaltsplans für das Haushaltsjahr 2010
+- **HG-2011** Gesetz über die Feststellung des Bundeshaushaltsplans für das Haushaltsjahr 2011
+- **HG-2012** Gesetz über die Feststellung des Bundeshaushaltsplans für das Haushaltsjahr 2012
+- **HG-2013** Gesetz über die Feststellung des Bundeshaushaltsplans für das Haushaltsjahr 2013
+- **HG-2014** Gesetz über die Feststellung des Bundeshaushaltsplans für das Haushaltsjahr 2014
+- **HG-2015** Gesetz über die Feststellung des Bundeshaushaltsplans für das Haushaltsjahr 2015
+- **HG-2016** Gesetz über die Feststellung des Bundeshaushaltsplans für das Haushaltsjahr 2016
+- **HG-2017** Gesetz über die Feststellung des Bundeshaushaltsplans für das Haushaltsjahr 2017
+- **HG-2018** Gesetz über die Feststellung des Bundeshaushaltsplans für das Haushaltsjahr 2018
+- **HG-2019** Gesetz über die Feststellung des Bundeshaushaltsplans für das Haushaltsjahr 2019
+- **HG-2020** Gesetz über die Feststellung des Bundeshaushaltsplans für das Haushaltsjahr 2020
+- **HGB** Handelsgesetzbuch
+- **HGBAnl** Bestimmungen über die Beförderung von Reisenden und ihrem Gepäck auf See (Anlage zu § 664 des Handelsgesetzbuchs)
+- **HGBEG** Einführungsgesetz zum Handelsgesetzbuch
+- **HGrG** Gesetz über die Grundsätze des Haushaltsrechts des Bundes und der Länder
+- **HHG** Gesetz über Hilfsmaßnahmen für Personen, die aus politischen Gründen außerhalb der Bundesrepublik Deutschland in Gewahrsam genommen wurden
+- **HiKassGAufhG** Gesetz betreffend die Aufhebung des Hilfskassengesetzes
+- **HilfetelefonG** Gesetz zur Einrichtung und zum Betrieb eines bundesweiten Hilfetelefons „Gewalt gegen Frauen“
+- **HilfsbFürsVbgG-CHE** Gesetz über die Vereinbarung zwischen der Bundesrepublik Deutschland und der Schweizerischen Eidgenossenschaft über die Fürsorge für Hilfsbedürftige nebst Schlußprotokoll
+- **HintO** Hinterlegungsordnung
+- **HIVHG** Gesetz über die humanitäre Hilfe für durch Blutprodukte HIV-infizierte Personen
+- **HiWerkBehKG** Gesetz über die Errichtung einer Stiftung "Hilfswerk für behinderte Kinder"
+- **HiWerkBehKGÄndG** Gesetz zur Änderung des Gesetzes über die Errichtung einer Stiftung "Hilfswerk für behinderte Kinder"
+- **HKEntschG** Gesetz über eine einmalige Entschädigung an die Heimkehrer aus dem Beitrittsgebiet
+- **HkGÄndG-2** Zweites Gesetz zur Änderung und Ergänzung des Heimkehrergesetzes
+- **HkGAufhuaÄndG** Gesetz zur Aufhebung des Heimkehrergesetzes und zur Änderung anderer Vorschriften
+- **HKStG** Gesetz über die Heimkehrerstiftung
+- **HöfeO** Höfeordnung
+- **HöfeOÄndG-2** Zweites Gesetz zur Änderung der Höfeordnung
+- **HöfeVfO** Verfahrensordnung für Höfesachen
+- **HoheSeeEinbrG** Gesetz über das Verbot der Einbringung von Abfällen und anderen Stoffen und Gegenständen in die Hohe See (Artikel 1 des Gesetzes zur Ausführung des Protokolls vom 7. November 1996 zum Übereinkommen über die Verhütung der Meeresverschmutzung durch das Einbringen von Abfällen und anderen Stoffen von 1972)
+- **HoheSeeÜbkG** Gesetz zum Übereinkommen vom 29. April 1958 über die Hohe See
+- **HolzSiG** Gesetz gegen den Handel mit illegal eingeschlagenem Holz
+- **HopfBezG** Gesetz über die Herkunftsbezeichnung des Hopfens
+- **HopfG** Hopfengesetz
+- **HRBerG** Gesetz über die Aufhebung von Vorschriften auf dem Gebiet des Handelsrechts, des Genossenschaftsrechts und des Wechsel- und Scheckrechts
+- **HRefG** Gesetz zur Neuregelung des Kaufmanns- und Firmenrechts und zur Änderung anderer handels- und gesellschaftsrechtlicher Vorschriften
+- **HRFEG** Gesetz zur Fortentwicklung des Haushaltsrechts von Bund und Ländern
+- **HRG** Hochschulrahmengesetz
+- **HSchmidtStiftG** Gesetz über die Errichtung einer Bundeskanzler-Helmut-Schmidt-Stiftung
+- **HSchulBG** Gesetz über die Gemeinschaftsaufgabe "Ausbau und Neubau von Hochschulen"
+- **HSeeZG** Gesetz über die internationale Zusammenarbeit zur Durchführung von Sanktionsrecht der Vereinten Nationen und über die internationale strafrechtliche Zusammenarbeit auf Hoher See
+- **HSiG** Gesetz zur Sicherung des Haushaltsausgleichs
+- **HStatG-1990** Gesetz über die Statistik für das Hochschulwesen sowie für die Berufsakademien
+- **HStruktG** Gesetz zur Verbesserung der Haushaltsstruktur
+- **HStruktG-2** Zweites Gesetz zur Verbesserung der Haushaltsstruktur
+- **HTürGG** Gesetz über den Widerruf von Haustürgeschäften und ähnlichen Geschäften
+- **HufBeschlG** Gesetz über den Hufbeschlag
+- **HufBeschlG-2006** Gesetz über den Beschlag von Hufen und Klauen
+- **HumHiG** Gesetz über Maßnahmen für im Rahmen humanitärer Hilfsaktionen aufgenommene Flüchtlinge
+- **HundVerbrEinfG** Gesetz zur Beschränkung des Verbringens oder der Einfuhr gefährlicher Hunde in das Inland
+- **HwGaStatG** Gesetz über die Durchführung laufender Statistiken im Handwerk
+- **HwO** Gesetz zur Ordnung des Handwerks
+- **HwOuaÜG** Übergangsgesetz aus Anlaß des Zweiten Gesetzes zur Änderung der Handwerksordnung und anderer handwerksrechtlicher Vorschriften
+- **HwStatG-1994** Gesetz über Statistiken im Handwerk
+- **HwWahlO** Wahlordnung für die Wahlen der Mitglieder der Vollversammlung der Handwerkskammern (Anlage C zu dem Gesetz zur Ordnung des Handwerks (Handwerksordnung))
+- **HypAblAO** Anordnung über die Ablösung früherer Rechte
+- **HypBkG** Hypothekenbankgesetz
+- **HypBkGÄndG-4** Viertes Gesetz zur Abänderung und Ergänzung des Hypothekenbankgesetzes
+- **HypBkGÄndG-5** Fünftes Gesetz zur Änderung und Ergänzung des Hypothekenbankgesetzes
+- **HypKrlosErklG** Gesetz über die Kraftloserklärung von Hypotheken-, Grundschuld- und Rentenschuldbriefen in besonderen Fällen
+- **HypSchiffBkErwG** Gesetz über eine vorübergehende Erweiterung der Geschäfte der Hypotheken- und Schiffspfandbriefbanken
+- **HypSchiffBkRG** Gesetz über weitere Maßnahmen auf dem Gebiet des Hypotheken- und Schiffsbankrechts sowie über Ausnahmen von § 247 Abs. 1 des Bürgerlichen Gesetzbuchs
+- **HypSichG** Gesetz zur Sicherung von Forderungen für den Lastenausgleich
+- **HypÜberlG** Gesetz betreffend die Überleitung von Hypotheken des früheren Rechtes
+- **HZvG** Gesetz zur Neuregelung der hüttenknappschaftlichen Pensionsversicherung im Saarland
+- **HZvG-2002** Gesetz zur Neuregelung der Hüttenknappschaftlichen Zusatzversicherung im Saarland
+- **HZvNG** Gesetz zur Einführung einer kapitalgedeckten Hüttenknappschaftlichen Zusatzversicherung und zur Änderung anderer Gesetze
+- **IAEOBen-IAEOHiLÜbkG** Gesetz zu den IAEO-Übereinkommen vom 26. September 1986 über die frühzeitige Benachrichtigung bei nuklearen Unfällen sowie über Hilfeleistung bei nuklearen Unfällen oder radiologischen Notfällen
+- **IAmEntwBkÜbkG** Gesetz zu dem Übereinkommen vom 8. April 1959 zur Errichtung der Interamerikanischen Entwicklungsbank
+- **IAmInvGesÜbkUSA-uaG** Gesetz zu dem Übereinkommen vom 19. November 1984 zur Errichtung der Interamerikanischen Investitionsgesellschaft
+- **IAOÜbk118G** Gesetz zu dem Übereinkommen Nr. 118 der Internationalen Arbeitsorganisation vom 28. Juni 1962 über die Gleichbehandlung von Inländern und Ausländern in der Sozialen Sicherheit
+- **IAOÜbk121G** Gesetz zu dem Übereinkommen Nr. 121 der Internationalen Arbeitsorganisation vom 8. Juli 1964 über Leistungen bei Arbeitsunfällen und Berufskrankheiten
+- **IAOÜbk147G** Gesetz zum Übereinkommen Nr. 147 der Internationalen Arbeitsorganisation vom 29. Oktober 1976 über Mindestnormen auf Handelsschiffen
+- **IBRD-IFCAbkÄndG** Gesetz zur Änderung des Abkommens über die Internationale Bank für Wiederaufbau und Entwicklung und des Abkommens über die Internationale Finanz-Corporation
+- **IEnProgÜbkG** Gesetz zu dem Übereinkommen vom 18. November 1974 über ein Internationales Energieprogramm
+- **IEntwOrgAbkG** Gesetz zu dem Abkommen vom 26. Januar 1960 über die Internationale Entwicklungsorganisation
+- **IFCAbkG** Gesetz betreffend das Abkommen über die Internationale Finanz-Corporation und betreffend Gouverneure und Direktoren in der Internationalen Bank für Wiederaufbau und Entwicklung sowie in der Internationalen Finanz-Corporation
+- **IFG** Gesetz zur Regelung des Zugangs zu Informationen des Bundes
+- **IfSG** Gesetz zur Verhütung und Bekämpfung von Infektionskrankheiten beim Menschen
+- **IFUKK1992ÄndUrk1996G** Gesetz zu den Änderungsurkunden vom 24. November 2006 zur Konstitution und zur Konvention der Internationalen Fernmeldeunion vom 22. Dezember 1992
+- **IFUKK1992ÄndUrkG** Gesetz zu den Änderungsurkunden vom 6. November 1998 zur Konstitution und zur Konvention der Internationalen Fernmeldeunion vom 22. Dezember 1992
+- **IFUKK1992G** Gesetz zu der Konstitution und der Konvention der Internationalen Fernmeldeunion vom 22. Dezember 1992 sowie zu den Änderungen der Konstitution und der Konvention der Internationalen Fernmeldeunion vom 14. Oktober 1994
+- **IFUKKG** Gesetz zu der Konstitution und der Konvention der Internationalen Fernmeldeunion vom 30. Juni 1989
+- **IGV-DG** Gesetz zur Durchführung der Internationalen Gesundheitsvorschriften (2005)
+- **IGVG-2005** Gesetz zu den Internationalen Gesundheitsvorschriften (2005) (IGV) vom 23. Mai 2005
+- **IHKG** Gesetz zur vorläufigen Regelung des Rechts der Industrie- und Handelskammern
+- **IKSRRechtsG** Gesetz zur Verleihung der Rechts- und Geschäftsfähigkeit an die Internationale Kommission zum Schutze des Rheins
+- **IMF-IBRDBeitrAbkG** Gesetz über den Beitritt der Bundesrepublik Deutschland zu den Abkommen über den Internationalen Währungsfonds (International Monetary Fund) und über die Internationale Bank für Wiederaufbau und Entwicklung (International Bank for Reconstruction and Development)
+- **IMFAbkG** Gesetz zu dem Übereinkommen über den Internationalen Währungsfonds in der Fassung von 1976
+- **IndKredBkG** Gesetz betreffend die Industriekreditbank Aktiengesellschaft
+- **InfoGesStatG** Gesetz über die Statistik zur Informationsgesellschaft
+- **InfrAG** Gesetz über die Erhebung einer zeitbezogenen Infrastrukturabgabe für die Benutzung von Bundesfernstraßen
+- **InfrGG** Gesetz zur Errichtung einer Infrastrukturgesellschaft für Autobahnen und andere Bundesfernstraßen
+- **InhPapG** Gesetz betreffend die Inhaberpapiere mit Prämien
+- **InsO** Insolvenzordnung
+- **InsStatG** Gesetz über die Insolvenzstatistik
+- **IntBestG** Gesetz zu dem Übereinkommen vom 17. Dezember 1997 über die Bekämpfung der Bestechung ausländischer Amtsträger im internationalen Geschäftsverkehr
+- **INTELSATÜbkÄndG** Gesetz zu den Änderungen vom 1. September 1995 des Übereinkommens über die Internationale Fernmeldesatellitenorganisation "INTELSAT"
+- **INTELSATÜbkG** Gesetz zu dem Übereinkommen vom 20. August 1971 über die Internationale Fernmeldesatellitenorganisation "INTELSAT"
+- **IntErbRVG** Internationales Erbrechtsverfahrensgesetz
+- **INTERSPUTNIKG** Gesetz zu dem Abkommen vom 15. November 1971 über die Schaffung des internationalen Systems und der Organisation für kosmische Fernmeldeverbindungen "INTERSPUTNIK" und zu dem Protokoll vom 30. November 1996 über die Einbringung von Korrekturen in dieses Abkommen
+- **IntFamRVG** Gesetz zur Aus- und Durchführung bestimmter Rechtsinstrumente auf dem Gebiet des internationalen Familienrechts
+- **IntGesVsG** Gesetz zu den Internationalen Gesundheitsvorschriften vom 25. Juli 1969
+- **IntGüRVG** Internationales Güterrechtsverfahrensgesetz
+- **IntKakaoÜbk1980G** Gesetz zu dem Internationalen Kakao-Übereinkommen von 1980
+- **IntKakaoÜbk1986G** Gesetz zu dem Internationalen Kakao-Übereinkommen von 1986
+- **IntKakaoÜbk1993G** Gesetz zu dem Internationalen Kakao-Übereinkommen von 1993
+- **IntMeerSchÜbk1973G** Gesetz zu dem Internationalen Übereinkommen von 1973 zur Verhütung der Meeresverschmutzung durch Schiffe und zu dem Protokoll von 1978 zu diesem Übereinkommen
+- **IntMUSchÜbkG** Gesetz zu internationalen Übereinkommen über den Schutz der Meeresumwelt des Ostseegebietes und des Nordostatlantiks
+- **IntPatÜbkG** Gesetz zu dem Übereinkommen vom 27. November 1963 zur Vereinheitlichung gewisser Begriffe des materiellen Rechts der Erfindungspatente, dem Vertrag vom 19. Juni 1970 über die internationale Zusammenarbeit auf dem Gebiet des Patentwesens und dem Übereinkommen vom 5. Oktober 1973 über die Erteilung europäischer Patente
+- **IntPRAbkG-Haag** Gesetz über den Beitritt von Staaten zu den Haager Abkommen über internationales Privatrecht
+- **IntRaumsÜbkG** Gesetz zu dem Übereinkommen vom 29. Januar 1998 zwischen der Regierung Kanadas, Regierungen von Mitgliedstaaten der Europäischen Weltraumorganisation, der Regierung Japans, der Regierung der Russischen Föderation und der Regierung der Vereinigten Staaten von Amerika über Zusammenarbeit bei der zivilen internationalen Raumstation
+- **IntSchVermÜbkG** Gesetz zu dem Internationalen Schiffsvermessungs-Übereinkommen vom 23. Juni 1969
+- **IntVG** Gesetz über die Wahrnehmung der Integrationsverantwortung des Bundestages und des Bundesrates in Angelegenheiten der Europäischen Union
+- **IntZLuftAbkProt89-90G** Gesetz zu den Protokollen vom 6. Oktober 1989 und vom 26. Oktober 1990 zur Änderung des Abkommens vom 7. Dezember 1944 über die Internationale Zivilluftfahrt
+- **IntZLuftAbkProtG** Gesetz zu dem Protokoll vom 10. Mai 1984 zur Änderung des Abkommens vom 7. Dezember 1944 über die Internationale Zivilluftfahrt (9. Änderung des Abkommens über die Internationale Zivilluftfahrt)
+- **InVeKoSDG** Gesetz über die Verarbeitung und Nutzung von Daten im Rahmen des integrierten Verwaltungs- und Kontrollsystems nach den gemeinschaftsrechtlichen Vorschriften für landwirtschaftliche Stützungsregelungen
+- **InVeKoSDG-2015** Gesetz über die Verarbeitung von Daten im Rahmen des Integrierten Verwaltungs- und Kontrollsystems nach den unionsrechtlichen Vorschriften für Agrarzahlungen
+- **InvErlWoBauldG** Gesetz zur Erleichterung von Investitionen und der Ausweisung und Bereitstellung von Wohnbauland
+- **InvestHemBesG** Gesetz zur Beseitigung von Hemmnissen bei der Privatisierung von Unternehmen und zur Förderung von Investitionen
+- **InvG** Investmentgesetz
+- **InvHSG** Gesetz über den Abschluß der Investitionshilfe der gewerblichen Wirtschaft
+- **InVorG** Gesetz über den Vorrang für Investitionen bei Rückübertragungsansprüchen nach dem Vermögensgesetz
+- **InvStG** Investmentsteuergesetz
+- **InvStG-2018** Investmentsteuergesetz
+- **InvStreitÜbkG** Gesetz zu dem Übereinkommen vom 18. März 1965 zur Beilegung von Investitionsstreitigkeiten zwischen Staaten und Angehörigen anderer Staaten
+- **InvZulBerG** Gesetz über die berechnungsrechtliche Behandlung von Investitionszulagen im preisgebundenen Wohnungsbau
+- **InvZulG-1991** Investitionszulagengesetz 1996
+- **InvZulG-1999** Investitionszulagengesetz 1999
+- **InvZulG-2005** Investitionszulagengesetz 2005
+- **InvZulG-2007** Investitionszulagengesetz 2007
+- **InvZulG-2010** Investitionszulagengesetz 2010
+- **InvZulG1999ÄndG** Gesetz zur Änderung des Investitionszulagengesetzes 1999
+- **IRegG** Gesetz zum Implantateregister Deutschland
+- **IRENASaG** Gesetz zu der Satzung vom 26. Januar 2009 der Internationalen Organisation für erneuerbare Energien
+- **IRENASitzAbkG** Gesetz zu dem Abkommen vom 5. April 2011 zwischen der Bundesrepublik Deutschland und der Internationalen Organisation für erneuerbare Energien über den Sitz des IRENA-Innovations- und Technologiezentrums
+- **IRG** Gesetz über die internationale Rechtshilfe in Strafsachen
+- **IStGHG** Gesetz über die Zusammenarbeit mit dem Internationalen Strafgerichtshof
+- **IStGHGleichstG** Gesetz über das Ruhen der Verfolgungsverjährung und die Gleichstellung der Richter und Bediensteten des Internationalen Strafgerichtshofes
+- **IT-NetzG** Gesetz über die Verbindung der informationstechnischen Netze des Bundes und der Länder – Gesetz zur Ausführung von Artikel 91c Absatz 4 des Grundgesetzes –
+- **ITFG** Gesetz zur Errichtung eines Sondervermögens „Investitions- und Tilgungsfonds“
+- **IVSG** Gesetz über Intelligente Verkehrssysteme im Straßenverkehr und deren Schnittstellen zu anderen Verkehrsträgern
+- **IVÜG** Gesetz zu interessenvertretungsrechtlichen Übergangsregelungen anlässlich des Inkrafttretens des Gesetzes zur Änderung des Bundespolizeigesetzes und anderer Gesetze
+- **IWG** Gesetz über die Weiterverwendung von Informationen öffentlicher Stellen
+- **JAOÜbk99G** Gesetz betreffend das Übereinkommen der Internationalen Arbeitsorganisation vom 28. Juni 1951 (Nr. 99) über die Verfahren zur Festsetzung von Mindestlöhnen in der Landwirtschaft
+- **JArbSchG** Gesetz zum Schutze der arbeitenden Jugend
+- **JBeitrO** Justizbeitreibungsgesetz
+- **JFDG** Gesetz zur Förderung von Jugendfreiwilligendiensten
+- **JgefSchrG** Gesetz über die Verbreitung jugendgefährdender Schriften und Medieninhalte
+- **JgefSchrGÄndG** Gesetz zur Änderung und Ergänzung des Gesetzes über die Verbreitung jugendgefährdender Schriften
+- **JGG** Jugendgerichtsgesetz
+- **JMBStiftG** Gesetz zur Errichtung einer "Stiftung Jüdisches Museum Berlin"
+- **JÖSchG** Gesetz zum Schutze der Jugend in der Öffentlichkeit (Artikel 1 des Gesetzes zur Neuregelung des Jugendschutzes in der Öffentlichkeit)
+- **JSchÖGÄndG** Gesetz zur Änderung des Gesetzes zum Schutz der Jugend in der Öffentlichkeit
+- **JStG-1996** Jahressteuergesetz 1996
+- **JudDenkmStiftG** Gesetz zur Errichtung einer "Stiftung Denkmal für die ermordeten Juden Europas"
+- **JuMiG** Justizmitteilungsgesetz und Gesetz zur Änderung kostenrechtlicher Vorschriften und anderer Gesetze
+- **JurAusbRefG** Gesetz zur Reform der Juristenausbildung
+- **JurAusbVerkG** Gesetz zur Verkürzung der Juristenausbildung
+- **JurPersAnerkProtG** Gesetz zu dem Protokoll vom 3. Juni 1971 betreffend die Auslegung des Übereinkommens vom 29. Februar 1968 über die gegenseitige Anerkennung von Gesellschaften und juristischen Personen durch den Gerichtshof
+- **JurPersAnerkÜbkG** Gesetz zu dem Übereinkommen vom 29. Februar 1968 über die gegenseitige Anerkennung von Gesellschaften und juristischen Personen
+- **JuSchG** Jugendschutzgesetz
+- **JVEG** Gesetz über die Vergütung von Sachverständigen, Dolmetscherinnen, Dolmetschern, Übersetzerinnen und Übersetzern sowie die Entschädigung von ehrenamtlichen Richterinnen, ehrenamtlichen Richtern, Zeuginnen, Zeugen und Dritten
+- **JVertrAmtszVerlG** Gesetz zur Verlängerung der Amtszeit der Jugendvertretungen in den Betrieben
+- **JVKostG** Gesetz über Kosten in Angelegenheiten der Justizverwaltung
+- **JVKostO** Gesetz über Kosten im Bereich der Justizverwaltung
+- **KabPfandG** Kabelpfandgesetz
+- **KaEntwBkÜbkG** Gesetz zu dem Übereinkommen vom 18. Oktober 1969 zur Errichtung der Karibischen Entwicklungsbank
+- **KaffeeStG-1993** Kaffeesteuergesetz
+- **KaffeeStG-2009** Kaffeesteuergesetz
+- **KaffeeÜbk1983G** Gesetz zu dem Internationalen Kaffee-Übereinkommen von 1983 und zur Verlängerung des Internationalen Kaffee-Übereinkommens von 1976
+- **KAGB** Kapitalanlagegesetzbuch
+- **KAGG** Gesetz über Kapitalanlagegesellschaften
+- **KAGG-GewOErgG** Gesetz zur Änderung und Ergänzung des Gesetzes über Kapitalanlagegesellschaften und der Gewerbeordnung
+- **KapAEG** Gesetz zur Verbesserung der Wettbewerbsfähigkeit deutscher Konzerne an Kapitalmärkten und zur Erleichterung der Aufnahme von Gesellschafterdarlehen
+- **KapErhG** Gesetz über die Kapitalerhöhung aus Gesellschaftsmitteln und über die Verschmelzung von Gesellschaften mit beschränkter Haftung
+- **KapErhStG** Gesetz über steuerrechtliche Maßnahmen bei Erhöhung des Nennkapitals aus Gesellschaftsmitteln
+- **KapMuG** Gesetz über Musterverfahren in kapitalmarktrechtlichen Streitigkeiten
+- **KapMuG-2012** Gesetz über Musterverfahren in kapitalmarktrechtlichen Streitigkeiten
+- **KARG** Gesetz über Änderungen von Vorschriften des Zweiten Buches der Reichsversicherungsordnung und zur Ergänzung des Sozialgerichtsgesetzes
+- **KastrG** Gesetz über die freiwillige Kastration und andere Behandlungsmethoden
+- **KatHiLAbkBELG** Gesetz zu dem Abkommen vom 6. November 1980 zwischen der Bundesrepublik Deutschland und dem Königreich Belgien über die gegenseitige Hilfeleistung bei Katastrophen oder schweren Unglücksfällen
+- **KatHiLAbkCHEG** Gesetz zu dem Abkommen vom 28. November 1984 zwischen der Bundesrepublik Deutschland und der Schweizerischen Eidgenossenschaft über die gegenseitige Hilfeleistung bei Katastrophen oder schweren Unglücksfällen
+- **KatHiLAbkCZEG** Gesetz zu dem Vertrag vom 19. September 2000 zwischen der Bundesrepublik Deutschland und der Tschechischen Republik über die gegenseitige Hilfeleistung bei Katastrophen und schweren Unglücksfällen
+- **KatHiLAbkDNKG** Gesetz zu dem Abkommen vom 16. Mai 1985 zwischen der Bundesrepublik Deutschland und dem Königreich Dänemark über die gegenseitige Hilfeleistung bei Katastrophen oder schweren Unglücksfällen
+- **KatHiLAbkFRAG** Gesetz zu dem Abkommen vom 3. Februar 1977 zwischen der Bundesrepublik Deutschland und der Französischen Republik über die gegenseitige Hilfeleistung bei Katastrophen oder schweren Unglücksfällen
+- **KatHiLAbkLITG** Gesetz zu dem Abkommen vom 15. März 1994 zwischen der Bundesrepublik Deutschland und der Republik Litauen über die gegenseitige Hilfeleistung bei Katastrophen oder schweren Unglücksfällen
+- **KatHiLAbkLUXG** Gesetz zu dem Abkommen vom 2. März 1978 zwischen der Bundesrepublik Deutschland und dem Großherzogtum Luxemburg über die gegenseitige Hilfeleistung bei Katastrophen oder schweren Unglücksfällen
+- **KatHiLAbkPOLG** Gesetz zu dem Abkommen vom 10. April 1997 zwischen der Bundesrepublik Deutschland und der Republik Polen über die gegenseitige Hilfeleistung bei Katastrophen oder schweren Unglücksfällen
+- **KatHiLAbkRussFöG** Gesetz zu dem Abkommen vom 16. Dezember 1992 zwischen der Regierung der Bundesrepublik Deutschland und der Regierung der Russischen Föderation über die gegenseitige Hilfeleistung bei Katastrophen oder schweren Unglücksfällen
+- **KatSchErwG** Gesetz über die Erweiterung des Katastrophenschutzes
+- **KBAG** Gesetz über die Errichtung eines Kraftfahrt-Bundesamtes
+- **KBFG** Gesetz zur Errichtung eines Sondervermögens „Kinderbetreuungsausbau“
+- **KBNAnrG** Gesetz zur Nichtanrechnung des Kinderbonus
+- **KBV-2002** Kleinbetragsverordnung
+- **KDVG** Gesetz über die Verweigerung des Kriegsdienstes mit der Waffe aus Gewissensgründen
+- **KDVG-2003** Gesetz über die Verweigerung des Kriegsdienstes mit der Waffe aus Gewissensgründen
+- **KDVNG** Gesetz zur Neuordnung des Rechts der Kriegsdienstverweigerung und des Zivildienstes
+- **KELG** Gesetz über die Kaufmannseigenschaft von Land- und Forstwirten und dem Ausgleichsanspruch des Handelsvertreters
+- **KErmÄndG** Gesetz zur Änderung von Kostenermächtigungen und zur Überleitung gebührenrechtlicher Vorschriften
+- **KernbrStG** Kernbrennstoffsteuergesetz
+- **KErzG** Gesetz über die religiöse Kindererziehung
+- **KEZG** Gesetz über die Gewährung eines Kindererziehungszuschlags (Artikel 16 des Gesetzes zur Änderung des Beamtenversorgungsgesetzes und sonstiger dienst- und versorgungsrechtlicher Vorschriften)
+- **KEZG-1998** Gesetz über die Gewährung eines Kindererziehungszuschlags
+- **KfbG** Gesetz zur Bereinigung von Kriegsfolgengesetzen
+- **KfSachvG** Gesetz über amtlich anerkannte Sachverständige und amtlich anerkannte Prüfer für den Kraftfahrzeugverkehr
+- **KfzAbkGBRG** Gesetz zu dem Abkommen vom 5. November 1971 zwischen der Regierung der Bundesrepublik Deutschland und der Regierung des Vereinigten Königreichs Großbritannien und Nordirland über die steuerliche Behandlung von Straßenfahrzeugen im internationalen Verkehr
+- **KfzAnmVerlG** Gesetz zur Verlängerung der Regelung über die Anmietung von Kraftfahrzeugen im Werkverkehr nach dem Einigungsvertrag
+- **KGFAbkG** Gesetz zu dem Abkommen vom 16. Dezember 1992 zwischen der Regierung der Bundesrepublik Deutschland und der Regierung der Russischen Föderation über Kriegsgräberfürsorge
+- **KGSG** Gesetz zum Schutz von Kulturgut
+- **KGUG** Gesetz über die nachträgliche Umstellung von Mark der Deutschen Demokratischen Republik auf Deutsche Mark für Kontoguthaben natürlicher Personen
+- **KGUGEG** Gesetz über die nachträgliche Umstellung von Kontoguthaben, über die Tilgung von Anteilrechten an der Altguthaben-Ablösungs-Anleihe, zur Änderung lastenausgleichsrechtlicher Bestimmungen und zur Ergänzung des Gesetzes über die Errichtung der "Staatlichen Versicherung der DDR in Abwicklung"
+- **KHBegrG-1999** Gesetz zur Begrenzung der Erlöse für stationäre Krankenhausleistungen im Jahr 1999
+- **KHEntgG** Gesetz über die Entgelte für voll- und teilstationäre Krankenhausleistungen
+- **KHfEVerbG** Gesetz zur Durchführung unionsrechtlicher Vorschriften über Verbote und Beschränkungen hinsichtlich des Handels mit bestimmten tierischen Erzeugnissen sowie zu Haltungs- und Abgabeverboten in bestimmten Fällen
+- **KHG** Gesetz zur wirtschaftlichen Sicherung der Krankenhäuser und zur Regelung der Krankenhauspflegesätze
+- **KHKG** Gesetz zur Änderung des Gesetzes zur wirtschaftlichen Sicherung der Krankenhäuser und zur Regelung der Krankenhauspflegesätze
+- **KHNG** Gesetz zur Neuordnung der Krankenhausfinanzierung
+- **KHStabG-1996** Gesetz zur Stabilisierung der Krankenhausausgaben 1996
+- **KindRG** Gesetz zur Reform des Kindschaftsrechts
+- **KindUG** Gesetz zur Vereinheitlichung des Unterhaltsrechts minderjähriger Kinder
+- **KInvFErrG** Gesetz zur Errichtung eines Sondervermögens „Kommunalinvestitionsförderungsfonds“
+- **KInvFG** Gesetz zur Förderung von Investitionen finanzschwacher Kommunen
+- **KiQuTG** Gesetz zur Weiterentwicklung der Qualität und zur Verbesserung der Teilhabe in Tageseinrichtungen und in der Kindertagespflege
+- **KitaFinHG** Gesetz über Finanzhilfen des Bundes zum Ausbau der Tagesbetreuung für Kinder
+- **KJHG** Gesetz zur Neuordnung des Kinder- und Jugendhilferechts
+- **KKG** Gesetz zur Kooperation und Information im Kinderschutz
+- **KKÜNOG** Gesetz zu Übergangsregelungen zur Neuorganisation der vertragsärztlichen Selbstverwaltung und Organisation der Krankenkassen
+- **KKVerbdG** Gesetz über die Verbände der gesetzlichen Krankenkassen und der Ersatzkassen
+- **KlWalAbkG** Gesetz zu dem Abkommen vom 31. März 1992 zur Erhaltung der Kleinwale in der Nord- und Ostsee
+- **KO** Konkursordnung
+- **KOÄndGEG** Einführungsgesetz zu dem Gesetz, betreffend Änderungen der Konkursordnung
+- **KOEG** Gesetz, betreffend die Einführung der Konkursordnung
+- **KohleRatG** Gesetz zur Förderung der Rationalisierung im Steinkohlenbergbau
+- **KohleStillG** Gesetz über steuerliche Maßnahmen bei der Stillegung von Steinkohlenbergwerken
+- **KohleUMeldeG** Gesetz über Meldungen der Unternehmen des deutschen Steinkohlenbergbaus
+- **KolGesAuflG** Gesetz über die Auflösung, Abwicklung und Löschung von Kolonialgesellschaften
+- **KomVerfG** Gesetz über die Selbstverwaltung der Gemeinden und Landkreise in der DDR
+- **KONSENS-G** Gesetz über die Koordinierung der Entwicklung und des Einsatzes neuer Software der Steuerverwaltung
+- **KonsG** Gesetz über die Konsularbeamten, ihre Aufgaben und Befugnisse
+- **KonsHilfG** Gesetz zur Gewährung von Konsolidierungshilfen
+- **KonsÜbkG** Gesetz zu dem Wiener Übereinkommen vom 24. April 1963 über konsularische Beziehungen
+- **KonsVtrG-USA** Gesetz über den Freundschafts-, Handels- und Konsularvertrag zwischen dem Deutschen Reiche und den Vereinigten Staaten von Amerika
+- **KontrGerätBeglG** Gesetz über Begleitregelungen zur Einführung des digitalen Kontrollgeräts zur Kontrolle der Lenk- und Ruhezeiten
+- **KostÄndG** Gesetz zur Änderung und Ergänzung kostenrechtlicher Vorschriften
+- **KostÄndG-1969** Gesetz zur Änderung kostenrechtlicher Vorschriften
+- **KostÄndG-1975** Gesetz zur Änderung des Gerichtskostengesetzes, des Gesetzes über Kosten der Gerichtsvollzieher, der Bundesgebührenordnung für Rechtsanwälte und anderer Vorschriften
+- **KostErmÄndG** Gesetz zur Änderung von Kostenermächtigungen, sozialversicherungsrechtlichen und anderen Vorschriften
+- **KostMaßnG** Gesetz über Maßnahmen auf dem Gebiet des Kostenrechts
+- **KostO** Gesetz über die Kosten in Angelegenheiten der freiwilligen Gerichtsbarkeit
+- **KostRÄndG-1994** Gesetz zur Änderung von Kostengesetzen und anderen Gesetzen
+- **KoStrukStatG** Gesetz über Kostenstrukturstatistik
+- **KOVAnpG-10** Zehntes Gesetz über die Anpassung der Leistungen des Bundesversorgungsgesetzes
+- **KOVAnpG-1989** Gesetz über die achtzehnte Anpassung der Leistungen nach dem Bundesversorgungsgesetz und zur Änderung von Vorschriften über die Arbeitslosenhilfe
+- **KOVAnpG-1991** Gesetz über die zwanzigste Anpassung der Leistungen nach dem Bundesversorgungsgesetz
+- **KOVAnpG-5** Fünftes Gesetz über die Anpassung der Leistungen des Bundesversorgungsgesetzes
+- **KOVAnpG-9** Neuntes Gesetz über die Anpassung der Leistungen des Bundesversorgungsgesetzes
+- **KOVAUTVtrG** Gesetz zu dem Vertrag vom 7. Mai 1963 zwischen der Bundesrepublik Deutschland und der Republik Österreich über Kriegsopferversorgung und Beschäftigung Schwerbeschädigter
+- **KOVNOG-1** Gesetz zur Änderung und Ergänzung des Kriegsopferrechts
+- **KOVNOG-2** Zweites Gesetz zur Änderung und Ergänzung des Kriegsopferrechts
+- **KOVNOG-3** Drittes Gesetz zur Änderung und Ergänzung des Kriegsopferrechts
+- **KOVRentKapG** Gesetz zur Sicherstellung der Grundrentenabfindung in der Kriegsopferversorgung
+- **KOVVfG** Gesetz über das Verwaltungsverfahren der Kriegsopferversorgung
+- **KOVVtrESPG** Gesetz zu dem Vertrag vom 29. Mai 1962 zwischen der Bundesrepublik Deutschland und dem Spanischen Staat über Kriegsopferversorgung und zu dem Notenwechsel vom 16. Mai 1963
+- **KOVVwG** Gesetz über die Errichtung der Verwaltungsbehörden der Kriegsopferversorgung
+- **KOVZusVtrAUTG** Gesetz zu dem Zusatzvertrag vom 7. Februar 1969 zur Durchführung und Ergänzung des Vertrags vom 7. Mai 1963 zwischen der Bundesrepublik Deutschland und der Republik Österreich über Kriegsopferversorgung und Beschäftigung Schwerbeschädigter
+- **KraftStÄndG-1997** Gesetz zur stärkeren Berücksichtigung der Schadstoffemissionen bei der Besteuerung von Personenkraftwagen
+- **KraftStG** Kraftfahrzeugsteuergesetz
+- **KraftStKompG** Gesetz zur Regelung der finanziellen Kompensation zugunsten der Länder infolge der Übertragung der Ertragshoheit der Kraftfahrzeugsteuer auf den Bund
+- **KraftStNRG** Gesetz zur Neuregelung der Kraftfahrzeugsteuer und Änderung anderer Gesetze
+- **KrArchG** Gesetz über die zentrale Archivierung von Unterlagen aus dem Bereich des Kriegsfolgenrechts
+- **KredAAG** Gesetz über die Anpassung von Kreditverträgen an Marktbedingungen sowie über Ausgleichsleistungen an Kreditnehmer
+- **KredAnstWiAG** Gesetz über die Kreditanstalt für Wiederaufbau
+- **KredAufnG** Gesetz über die Aufnahme eines Kredits durch den Bund im Rahmen der von den Vereinigten Staaten gewährten Wirtschaftshilfe
+- **KredFinG-1967** Gesetz über die Aufnahme und Bereitstellung von Krediten zur Belebung der Investitionstätigkeit und zur Sicherung eines stetigen Wirtschaftswachstums im Rechnungsjahr 1967
+- **KredInstNdlAufhG** Gesetz zur Aufhebung der Beschränkung des Niederlassungsbereichs von Kreditinstituten
+- **KredInstNdlG** Gesetz über den Niederlassungsbereich von Kreditinstituten
+- **KredReorgG** Gesetz zur Reorganisation von Kreditinstituten
+- **KredSanG** Gesetz zur Umsetzung aufsichtsrechtlicher Bestimmungen zur Sanierung und Liquidation von Versicherungsunternehmen und Kreditinstituten
+- **KredWG** Gesetz über das Kreditwesen
+- **KredWGÄndG-2** Zweites Gesetz zur Änderung des Gesetzes über das Kreditwesen
+- **KredWGÄndG-3** Drittes Gesetz zur Änderung des Gesetzes über das Kreditwesen
+- **KrFArbZG** Gesetz zur Regelung der Arbeitszeit von selbständigen Kraftfahrern
+- **KrFoGRglG** Gesetz zur Regelung des Verhältnisses von Kriegsfolgengesetzen zum Einigungsvertrag
+- **KrFrHemmG** Gesetz über den Ablauf der durch Kriegs- oder Nachkriegsvorschriften gehemmten Fristen
+- **KrFrHemmGErgG** Gesetz zur Ergänzung des Gesetzes über den Ablauf der durch Kriegs- oder Nachkriegsvorschriften gehemmten Fristen
+- **KRG** Gesetz über Krebsregister
+- **KrGesAbwG** Gesetz über die Abwicklung der Kriegsgesellschaften
+- **KrGlasKennzG** Gesetz zur Kennzeichnung von Bleikristall und Kristallglas
+- **KrimBekAbkUSAAG** Gesetz zur Ausführung des Abkommens zwischen der Regierung der Bundesrepublik Deutschland und der Regierung der Vereinigten Staaten von Amerika vom 1. Oktober 2008 über die Vertiefung der Zusammenarbeit bei der Verhinderung und Bekämpfung schwerwiegender Kriminalität
+- **KrPflG-1985** Gesetz über die Berufe in der Krankenpflege
+- **KrPflG-2004** Gesetz über die Berufe in der Krankenpflege
+- **KrRegSiG** Gesetz zur Sicherung und vorläufigen Fortführung der Datensammlungen des "Nationalen Krebsregisters" der ehemaligen Deutschen Demokratischen Republik
+- **KrSSchäITAAbgG** Gesetz zur Abgeltung von Kriegssachschäden deutscher Staatsangehöriger in Italien
+- **KrW--AbfG** Gesetz zur Förderung der Kreislaufwirtschaft und Sicherung der umweltverträglichen Beseitigung von Abfällen
+- **KrWaffKontrG** Ausführungsgesetz zu Artikel 26 Abs. 2 des Grundgesetzes
+- **KrWG** Gesetz zur Förderung der Kreislaufwirtschaft und Sicherung der umweltverträglichen Bewirtschaftung von Abfällen
+- **KSchG** Kündigungsschutzgesetz
+- **KSEVtrAG** Ausführungsgesetz zu dem Vertrag vom 19. November 1990 über konventionelle Streitkräfte in Europa (KSE-Vertrag)
+- **KSEVtrG** Gesetz zu dem Vertrag vom 19. November 1990 über konventionelle Streitkräfte in Europa
+- **KSG** Bundes-Klimaschutzgesetz
+- **KSpG** Gesetz zur Demonstration der dauerhaften Speicherung von Kohlendioxid
+- **KStG-1977** Körperschaftsteuergesetz
+- **KSVG** Gesetz über die Sozialversicherung der selbständigen Künstler und Publizisten
+- **KüSchG** Gesetz über die Küstenschiffahrt
+- **KultgSchG** Gesetz zum Schutz deutschen Kulturgutes gegen Abwanderung
+- **KultgSchKonvAG** Gesetz zur Ausführung der Konvention vom 14. Mai 1954 zum Schutz von Kulturgut bei bewaffneten Konflikten
+- **KultgSchKonvG** Gesetz zu der Konvention vom 14. Mai 1954 zum Schutz von Kulturgut bei bewaffneten Konflikten
+- **KultGüRückG** Gesetz zur Umsetzung der Richtlinie 93/7/EWG des Rates über die Rückgabe von unrechtmäßig aus dem Hoheitsgebiet eines Mitgliedstaats verbrachten Kulturgütern (Artikel 1 des Gesetzes zur Umsetzung von Richtlinien der Europäischen Gemeinschaften über die Rückgabe von unrechtmäßig aus dem Hoheitsgebiet eines Mitgliedstaats verbrachten Kulturgütern und zur Änderung des Gesetzes zum Schutz deutschen Kulturgutes gegen Abwanderung)
+- **KultGüRückG-2007** Gesetz zur Ausführung des UNESCO-Übereinkommens vom 14. November 1970 über Maßnahmen zum Verbot und zur Verhütung der rechtswidrigen Einfuhr, Ausfuhr und Übereignung von Kulturgut und zur Umsetzung der Richtlinie 93/7/EWG des Rates vom 15.März 1993 über die Rückgabe von unrechtmäßig aus dem Hoheitsgebiet eines Mitgliedstaats verbrachten Kulturgütern
+- **KunstSchAbkG** Gesetz zu dem Internationalen Abkommen vom 26. Oktober 1961 über den Schutz der ausübenden Künstler, der Hersteller von Tonträgern und der Sendeunternehmen
+- **KunstUrhG** Gesetz betreffend das Urheberrecht an Werken der bildenden Künste und der Photographie
+- **KVArbNÜbkG** Gesetz über die Internationalen Übereinkommen betreffend die Krankenversicherung der Arbeitnehmer in Gewerbe und Handel und der Hausgehilfen sowie die Krankenversicherung der Arbeitnehmer in der Landwirtschaft
+- **KVEG** Gesetz zur Ergänzung und Verbesserung der Wirksamkeit kostendämpfender Maßnahmen in der Krankenversicherung
+- **KVermG** Gesetz über das Vermögen der Gemeinden, Städte und Landkreise
+- **KVfSPlG** Gesetz über den Sozialplan im Konkurs- und Vergleichsverfahren
+- **KVKG** Gesetz zur Dämpfung der Ausgabenentwicklung und zur Strukturverbesserung in der gesetzlichen Krankenversicherung
+- **KVLG** Gesetz zur Weiterentwicklung des Rechts der gesetzlichen Krankenversicherung
+- **KVLG-1989** Zweites Gesetz über die Krankenversicherung der Landwirte
+- **KVMG** Gesetz über die Verwaltung der Mittel der Träger der Krankenversicherung
+- **KVWG** Gesetz zur Weiterentwicklung des Kassenarztrechts
+- **KWKG** Gesetz zum Schutz der Stromerzeugung aus Kraft-Wärme-Kopplung
+- **KWKG-2002** Gesetz für die Erhaltung, die Modernisierung und den Ausbau der Kraft-Wärme-Kopplung
+- **KWKG-2016** Gesetz für die Erhaltung, die Modernisierung und den Ausbau der Kraft-Wärme-Kopplung
+- **KyotoProtAnpfondsG** Gesetz zur Verleihung der Rechtsfähigkeit an den Rat des Anpassungsfonds
+- **KyotoProtG** Gesetz zu dem Protokoll von Kyoto vom 11. Dezember 1997 zum Rahmenübereinkommen der Vereinten Nationen über Klimaänderungen (Kyoto-Protokoll)
+- **LAAbkErgAbkCHEG** Gesetz zu dem Abkommen vom 16. März 1962 zur Ergänzung des Abkommens vom 26. August 1952 zwischen der Bundesrepublik Deutschland und der Schweizerischen Eidgenossenschaft zum deutschen Lastenausgleich
+- **LABkG** Gesetz über die Deutsche Ausgleichsbank
+- **LadSchlG** Gesetz über den Ladenschluß
+- **LaFG** Gesetz zur Förderung der bäuerlichen Landwirtschaft
+- **LAG** Gesetz über den Lastenausgleich
+- **LAGÄndG-11** Elftes Gesetz zur Änderung des Lastenausgleichsgesetzes
+- **LAGÄndG-14** Vierzehntes Gesetz zur Änderung des Lastenausgleichsgesetzes
+- **LAGÄndG-16** Sechzehntes Gesetz zur Änderung des Lastenausgleichsgesetzes
+- **LAGÄndG-21** Einundzwanzigstes Gesetz zur Änderung des Lastenausgleichsgesetzes
+- **LAGÄndG-4** Viertes Gesetz zur Änderung des Lastenausgleichsgesetzes
+- **LAGÄndG-8** Achtes Gesetz zur Änderung des Lastenausgleichsgesetzes (Gesetz nach § 246 LAG - 8. ÄndG LAG)
+- **LagerstG** Gesetz über die Durchforschung des Reichsgebietes nach nutzbaren Lagerstätten
+- **LAnpG** Gesetz über die strukturelle Anpassung der Landwirtschaft an die soziale und ökologische Marktwirtschaft in der Deutschen Demokratischen Republik
+- **LArbAnsG** Gesetz über Zuschüsse aus Reichsmitteln für die Ansiedlung von Landarbeitern
+- **LASaarEG** Gesetz zur Einführung von Vorschriften des Lastenausgleichsrechts im Saarland
+- **LastG** Gesetz zur Lastentragung im Bund-Länder-Verhältnis bei Verletzung von supranationalen oder völkerrechtlichen Verpflichtungen
+- **LBesÄndG** Gesetz zur Änderung von Vorschriften der Lehrerbesoldung
+- **LBG** Gesetz über die Landbeschaffung für Aufgaben der Verteidigung
+- **LdRentBankG** Gesetz über die Deutsche Landesrentenbank
+- **LEBPAbkG-POL** Gesetz zu dem Abkommen vom 5. Dezember 2014 zwischen der Bundesrepublik Deutschland und der Republik Polen zum Export besonderer Leistungen für berechtigte Personen, die im Hoheitsgebiet der Republik Polen wohnhaft sind
+- **LegRegG** Gesetz über die Registrierung von Betrieben zur Haltung von Legehennen
+- **LEinfG** Verfassungsgesetz zur Bildung von Ländern in der Deutschen Demokratischen Republik
+- **LFBAG** Gesetz über das Luftfahrt-Bundesamt
+- **LFGB** Lebensmittel-, Bedarfsgegenstände- und Futtermittelgesetzbuch
+- **LFÜG** Gesetz über den Übergang auf das neue Lebensmittel- und Futtermittelrecht
+- **LFZ-KVRÄndG** Gesetz über die Fortzahlung des Arbeitsentgelts im Krankheitsfall und über Änderungen des Rechts der gesetzlichen Krankenversicherung
+- **LFZG** Gesetz über die Fortzahlung des Arbeitsentgelts im Krankheitsfall
+- **LFzPfSchG** Gesetz über die Unzulässigkeit der Sicherungsbeschlagnahme von Luftfahrzeugen
+- **LiBiUrhFrVerlG** Gesetz zur Verlängerung der Schutzfristen für das Urheberrecht an Lichtbildern
+- **LinKonfVhKodÜbkG** Gesetz zu dem Übereinkommen vom 6. April 1974 über einen Verhaltenskodex für Linienkonferenzen
+- **LMeerSchÜbkG** Gesetz zu dem Übereinkommen vom 4. Juni 1974 zur Verhütung der Meeresverschmutzung vom Lande aus
+- **LMFarbG** Gesetz betreffend die Verwendung gesundheitsschädlicher Farben bei der Herstellung von Nahrungsmitteln, Genußmitteln und Gebrauchsgegenständen
+- **LMG-1974** Vorläufiges Tabakgesetz
+- **LMG1974-25AnwG** Gesetz über die weitere Anwendbarkeit des § 25 des Lebensmittel- und Bedarfsgegenständegesetzes
+- **LMRGesRefG** Gesetz zur Neuordnung und Bereinigung des Rechts im Verkehr mit Lebensmitteln, Tabakerzeugnissen, kosmetischen Mitteln und sonstigen Bedarfsgegenständen
+- **LöschG** Gesetz über die Auflösung und Löschung von Gesellschaften und Genossenschaften
+- **LogopG** Gesetz über den Beruf des Logopäden
+- **LohnStatG** Gesetz über die Lohnstatistik
+- **LPachtVG** Gesetz über die Anzeige und Beanstandung von Landpachtverträgen
+- **LPartG** Gesetz über die Eingetragene Lebenspartnerschaft
+- **LSpG** Gesetz zur Durchführung der Rechtsakte der Europäischen Union über Qualitätsregelungen betreffend garantiert traditionelle Spezialitäten und fakultative Qualitätsangaben
+- **LSVAAbkBüsG** Gesetz zu dem Abkommen vom 7. Dezember 2004 zwischen der Regierung der Bundesrepublik Deutschland und dem Schweizerischen Bundesrat zum Vertrag vom 23. November 1964 über die Einbeziehung der Gemeinde Büsingen am Hochrhein in das schweizerische Zollgebiet über die Erhebung und die Ausrichtung eines Anteils der von der Schweiz in ihrem Staatsgebiet und im Gebiet der Gemeinde Büsingen am Hochrhein erhobenen leistungsabhängigen Schwerverkehrsabgabe (LSVA-Abkommen Büsingen)
+- **LSVSpiVG** Gesetz zur Errichtung des Spitzenverbandes der landwirtschaftlichen Sozialversicherung
+- **LSVÜG** Gesetz zu Übergangsregelungen zur Modernisierung des Rechts der landwirtschaftlichen Sozialversicherung
+- **LuftAbkRussFöG** Gesetz zu dem Abkommen vom 14. Juli 1993 zwischen der Regierung der Bundesrepublik Deutschland und der Regierung der Russischen Föderation über den Luftverkehr
+- **LuftFzgAbkG** Gesetz über den Beitritt der Bundesrepublik Deutschland zu dem Abkommen vom 19. Juni 1948 über die internationale Anerkennung von Rechten an Luftfahrzeugen
+- **LuftFzgG** Gesetz über Rechte an Luftfahrzeugen
+- **LuftNaSiG** Gesetz zur Sicherung des Nachweises der Eigentümerstellung und der Kontrolle von Luftfahrtunternehmen für die Aufrechterhaltung der Luftverkehrsbetriebsgenehmigung und der Luftverkehrsrechte
+- **LuftRAAbkDG** Gesetz zur Durchführung des Ersten Abkommens zur Vereinheitlichung des Luftprivatrechts
+- **LuftSiG** Luftsicherheitsgesetz
+- **LuftStatG** Gesetz über die Luftfahrtstatistik
+- **LuftVerkUSAAbkG** Gesetz zu dem Abkommen vom 7. Juli 1955 über den Luftverkehr zwischen der Bundesrepublik Deutschland und den Vereinigten Staaten von Amerika
+- **LuftVG** Luftverkehrsgesetz
+- **LuftVGÄndG** Gesetz zur Änderung des Luftverkehrsgesetzes
+- **LuftVGÄndG-10** Zehntes Gesetz zur Änderung des Luftverkehrsgesetzes
+- **LuftVGÄndG-11** Elftes Gesetz zur Änderung des Luftverkehrsgesetzes
+- **LuftVStG** Luftverkehrsteuergesetz
+- **LuftVVwZustG** Gesetz über Zuständigkeiten in der Luftverkehrsverwaltung
+- **LVANDZustÄndG** Gesetz zur Änderung von örtlichen Zuständigkeiten der Landesversicherungsanstalten in Niedersachsen und zur Änderung des Bundesversorgungsgesetzes
+- **LWahlG** Gesetz über die Wahlen zu Landtagen in der Deutschen Demokratischen Republik
+- **LwAltschG** Gesetz zur Änderung der Regelungen über Altschulden landwirtschaftlicher Unternehmen
+- **LwErzgSchulproG** Gesetz zur Durchführung unionsrechtlicher Vorschriften über das Schulprogramm für Obst, Gemüse und Milch
+- **LwG** Landwirtschaftsgesetz
+- **LwKredAnstV** Verordnung über landschaftliche Kreditanstalten
+- **LwRentBkG** Gesetz über die Landwirtschaftliche Rentenbank
+- **LwRentBkGÄndG** Gesetz zur Änderung des Gesetzes über die Landwirtschaftliche Rentenbank
+- **LwRentBkGÄndG-2** Zweites Gesetz zur Änderung des Gesetzes über die Landwirtschaftliche Rentenbank
+- **LwSiedlFöG** Gesetz zur Förderung der landwirtschaftlichen Siedlung
+- **LwSiedlFöG-1953** Gesetz zur Förderung der landwirtschaftlichen Siedlung
+- **LwVfG** Gesetz über das gerichtliche Verfahren in Landwirtschaftssachen
+- **MAbkMadridG** Gesetz über den Beitritt des Reichs zu dem Madrider Abkommen über die internationale Registrierung von Fabrik- oder Handelsmarken
+- **MAbkMadridProtG** Gesetz zu dem Protokoll vom 27. Juni 1989 zum Madrider Abkommen über die internationale Registrierung von Marken
+- **MADG** Gesetz über den militärischen Abschirmdienst
+- **MädchHdlÜbkAG** Ausführungsgesetz zu dem internationalen Übereinkommen zur Bekämpfung des Mädchenhandels vom 4. Mai 1910
+- **MainDonWasStrG-2** Zweites Gesetz über den rechtlichen Status der Main-Donau-Wasserstraße
+- **MarkenG** Gesetz über den Schutz von Marken und sonstigen Kennzeichen
+- **MarktONOG** Gesetz über Meldungen über Marktordnungswaren
+- **MarktStrG** Gesetz zur Anpassung der landwirtschaftlichen Erzeugung an die Erfordernisse des Marktes
+- **MarshallplAbkG** Gesetz betreffend das Abkommen über Wirtschaftliche Zusammenarbeit zwischen den Vereinigten Staaten von Amerika und der Bundesrepublik Deutschland vom 15. Dezember 1949
+- **MaßstG** Gesetz über verfassungskonkretisierende allgemeine Maßstäbe für die Verteilung des Umsatzsteueraufkommens, für den Finanzausgleich unter den Ländern sowie für die Gewährung von Bundesergänzungszuweisungen
+- **MauerG** Gesetz über den Verkauf von Mauer- und Grenzgrundstücken an die früheren Eigentümer (Artikel 1 des Gesetzes über den Verkauf von Mauer- und Grenzgrundstücken an die früheren Eigentümer und zur Änderung anderer Vorschriften)
+- **MautSysG** Gesetz über den Betrieb elektronischer Mautsysteme
+- **MautSysG-2014** Gesetz über den Betrieb elektronischer Mautsysteme
+- **MBergG** Gesetz zur Regelung des Meeresbodenbergbaus
+- **MBKG** Gesetz über die Ausübung der Berufe des Masseurs, des Masseurs und medizinischen Bademeisters und des Krankengymnasten
+- **MBPlG** Gesetz zur Regelung des Planungsverfahrens für Magnetschwebebahnen
+- **MeAnlG** Gesetz zur Regelung der Rechtsverhältnisse an Meliorationsanlagen
+- **MediationsG** Mediationsgesetz
+- **MeerAbfSchAbkProtG** Gesetz zu dem Protokoll vom 7. November 1996 zum Übereinkommen über die Verhütung der Meeresverschmutzung durch das Einbringen von Abfällen und anderen Stoffen von 1972
+- **MeerSchÜbkG** Gesetz zu den Übereinkommen vom 15. Februar 1972 und 29. Dezember 1972 zur Verhütung der Meeresverschmutzung durch das Einbringen von Abfällen durch Schiffe und Luftfahrzeuge
+- **MeßEinhG** Gesetz über die Einheiten im Messwesen und die Zeitbestimmung
+- **MessbG** Gesetz über den Messstellenbetrieb und die Datenkommunikation in intelligenten Energienetzen
+- **MessEG** Gesetz über das Inverkehrbringen und die Bereitstellung von Messgeräten auf dem Markt, ihre Verwendung und Eichung sowie über Fertigpackungen
+- **MForschG** Gesetz über die Durchführung wissenschaftlicher Meeresforschung
+- **MgVG** Gesetz über die Mitbestimmung der Arbeitnehmer bei einer grenzüberschreitenden Verschmelzung
+- **MHbeG** Gesetz zur Beschränkung der Haftung Minderjähriger
+- **MiArbG** Gesetz über die Festsetzung von Mindestarbeitsbedingungen
+- **MietHöReglG** Gesetz zur Regelung der Miethöhe (Artikel 3 des Zweiten Gesetzes über den Kündigungsschutz für Mietverhältnisse über Wohnraum)
+- **MietPfG** Gesetz über die Pfändung von Miet- und Pachtzinsforderungen wegen Ansprüche aus öffentlichen Grundstückslasten
+- **MietRÄndG-1** Erstes Gesetz zur Änderung mietrechtlicher Vorschriften
+- **MietRÄndG-2** Zweites Gesetz zur Änderung mietrechtlicher Vorschriften
+- **MietRÄndG-4** Viertes Gesetz zur Änderung mietrechtlicher Vorschriften
+- **MietRBlnÄndG-2** Zweites Gesetz zur Änderung mietrechtlicher und mietpreisrechtlicher Vorschriften im Land Berlin
+- **MietRBlnÄndG-3** Drittes Gesetz zur Änderung mietrechtlicher und mietpreisrechtlicher Vorschriften im Land Berlin
+- **MietRVerbG** Gesetz zur Verbesserung des Mietrechts und zur Begrenzung des Mietanstiegs sowie zur Regelung von Ingenieur- und Architektenleistungen
+- **MietWoErhG** Gesetz zur Erhöhung des Angebots an Mietwohnungen
+- **MikrozensusG-1975** Gesetz über die Durchführung einer Repräsentativstatistik der Bevölkerung und des Erwerbslebens (Mikrozensus)
+- **MikrozensusG-1985** Gesetz zur Durchführung einer Repräsentativstatistik über die Bevölkerung und den Arbeitsmarkt
+- **MikrozensusG-1996** Gesetz zur Durchführung einer Repräsentativstatistik über die Bevölkerung und den Arbeitsmarkt sowie die Wohnsituation der Haushalte
+- **MilchFettG** Gesetz über den Verkehr mit Milch, Milcherzeugnissen und Fetten
+- **MilchMargG** Gesetz über Milch, Milcherzeugnisse, Margarineerzeugnisse und ähnliche Erzeugnisse
+- **MilchSonMaßG** Gesetz zur Durchführung von Sondermaßnahmen der Europäischen Union im Milchmarktbereich
+- **MilchSoPrG** Gesetz über ein Sonderprogramm mit Maßnahmen für Milchviehhalter
+- **MilchVergG** Gesetz über die Gewährung einer Vergütung für die Aufgabe der Milcherzeugung für den Markt
+- **MiLoG** Gesetz zur Regelung eines allgemeinen Mindestlohns
+- **MilSeelsG** Gesetz über die Militärseelsorge
+- **MindlohnÜbkG** Gesetz betreffend das Internationale Übereinkommen über die Einrichtung von Verfahren zur Festsetzung von Mindestlöhnen
+- **MindNamÄndG** Gesetz zur Ausführung des Artikels 11 Abs. 1 des Rahmenübereinkommens des Europarats vom 1. Februar 1995 zum Schutz nationaler Minderheiten
+- **MinÖlDatG** Gesetz über die Erhebung von Meldungen in der Mineralölwirtschaft
+- **MinöStG-1993** Mineralölsteuergesetz
+- **MinWZulG** Gesetz über Zulassungsverfahren bei natürlichen Mineralwässern
+- **MitbestBeiG** Gesetz zur Beibehaltung der Mitbestimmung beim Austausch von Anteilen und der Einbringung von Unternehmensteilen, die Gesellschaften verschiedener Mitgliedstaaten der Europäischen Union betreffen
+- **MitbestG** Gesetz über die Mitbestimmung der Arbeitnehmer
+- **MittelweserG** Gesetz über den Grunderwerb für die Kanalisierung der Mittelweser
+- **ModG** Gesetz zur Modulation von Direktzahlungen im Rahmen der Gemeinsamen Agrarpolitik
+- **ModGAufhG** Gesetz zur Aufhebung des Modulationsgesetzes
+- **MOG** Gesetz zur Durchführung der gemeinsamen Marktorganisationen und der Direktzahlungen
+- **MontanMitbestAlzVerlG** Gesetz zur Verlängerung von Auslaufzeiten in der Montan-Mitbestimmung
+- **MontanMitbestG** Gesetz über die Mitbestimmung der Arbeitnehmer in den Aufsichtsräten und Vorständen der Unternehmen des Bergbaus und der Eisen und Stahl erzeugenden Industrie
+- **MontanMitbestG-ErgGÄndG** Gesetz zur Änderung des Montan-Mitbestimmungsgesetzes und des Mitbestimmungsergänzungsgesetzes
+- **MontanMitbestGErgG** Gesetz zur Ergänzung des Gesetzes über die Mitbestimmung der Arbeitnehmer in den Aufsichtsräten und Vorständen der Unternehmen des Bergbaus und der Eisen und Stahl erzeugenden Industrie
+- **MontÜG** Gesetz zur Durchführung des Übereinkommens vom 28. Mai 1999 zur Vereinheitlichung bestimmter Vorschriften über die Beförderung im internationalen Luftverkehr und zur Durchführung der Versicherungspflicht zur Deckung der Haftung für Güterschäden nach der Verordnung (EG) Nr. 785/2004
+- **MoselVtrFRA-LUXG** Gesetz zu dem Vertrag vom 27. Oktober 1956 zwischen der Bundesrepublik Deutschland, der Französischen Republik und dem Großherzogtum Luxemburg über die Schiffbarmachung der Mosel
+- **MPG** Gesetz über Medizinprodukte
+- **MPhG** Gesetz über die Berufe in der Physiotherapie
+- **MRRG** Melderechtsrahmengesetz
+- **MSAG** Gesetz zu dem Haager Übereinkommen vom 5. Oktober 1961 über die Zuständigkeit der Behörden und das anzuwendende Recht auf dem Gebiet des Schutzes von Minderjährigen
+- **MsbG** Gesetz zur Feststellung des Bedarfs von Magnetschwebebahnen
+- **MStaatÜbkG** Gesetz zu dem Übereinkommen vom 6. Mai 1963 über die Verringerung der Mehrstaatigkeit und über die Wehrpflicht von Mehrstaatern
+- **MTAG-1993** Gesetz über technische Assistenten in der Medizin
+- **MTInfoG** Gesetz über ein Informationssystem zur Bewertung medizinischer Technologien
+- **MÜG** Gesetz über die Angemessenheit von Entgelten beim Übergang in das Vergleichsmietensystem
+- **MünzG-2002** Münzgesetz
+- **MünzprG** Gesetz über die Ausprägung von Scheidemünzen
+- **MuKStiftG** Gesetz zur Errichtung einer Stiftung "Mutter und Kind - Schutz des ungeborenen Lebens"
+- **MuSchG** Gesetz zum Schutze der erwerbstätigen Mutter
+- **MuSchG-2018** Gesetz zum Schutz von Müttern bei der Arbeit, in der Ausbildung und im Studium
+- **MuSchÜbkG** Gesetz über das Washingtoner Übereinkommen betreffend die Beschäftigung der Frauen vor und nach der Niederkunft
+- **MuUrlG** Gesetz zur Einführung eines Mutterschaftsurlaubs
+- **MVzAFWoG** Gesetz zum Abbau der Fehlsubventionierung und der Mietverzerrung im Wohnungswesen
+- **MZG** Gesetz zur Durchführung einer Repräsentativstatistik über die Bevölkerung und die Arbeitsmarktbeteiligung sowie die Wohnsituation der Haushalte
+- **MZG-2005** Gesetz zur Durchführung einer Repräsentativstatistik über die Bevölkerung und den Arbeitsmarkt sowie die Wohnsituation der Haushalte
+- **NABEG** Netzausbaubeschleunigungsgesetz Übertragungsnetz
+- **NachhG** Gesetz zur Nachhaftung für Abbau- und Entsorgungskosten im Kernenergiebereich
+- **NachwG** Gesetz über den Nachweis der für ein Arbeitsverhältnis geltenden wesentlichen Bedingungen
+- **NagProtUmsG-EUV511-2014DG** Gesetz zur Umsetzung der Verpflichtungen nach dem Nagoya-Protokoll und zur Durchführung der Verordnung (EU) Nr. 511/2014
+- **NamÄndG** Gesetz über die Änderung von Familiennamen und Vornamen
+- **NATOProtG** Gesetz zu dem Protokoll vom 28. August 1952 über die Rechtsstellung der auf Grund des Nordatlantikvertrags errichteten internationalen militärischen Hauptquartiere und zu den dieses Protokoll ergänzenden Vereinbarungen
+- **NATOTrStatÄndZAbkG** Gesetz zu dem Abkommen vom 21. Oktober 1971 zur Änderung des Zusatzabkommens vom 3. August 1959 zu dem Abkommen zwischen den Parteien des Nordatlantikvertrags über die Rechtsstellung ihrer Truppen hinsichtlich der in der Bundesrepublik Deutschland stationierten ausländischen Truppen
+- **NATOTrStatVtrG** Gesetz zu dem Abkommen zwischen den Parteien des Nordatlantikvertrags vom 19. Juni 1951 über die Rechtsstellung ihrer Truppen und zu den Zusatzvereinbarungen vom 3. August 1959 zu diesem Abkommen
+- **NATOTrStatZAbkÄndAbkG** Gesetz zu dem Abkommen vom 18. März 1993 zur Änderung des Zusatzabkommens zum NATO-Truppenstatut und zu weiteren Übereinkünften
+- **NDKontrG** Gesetz über die parlamentarische Kontrolle nachrichtendienstlicher Tätigkeit des Bundes
+- **NDPHSG** Gesetz zu dem Übereinkommen vom 25. November 2011 über die Errichtung des Sekretariats der Partnerschaft für öffentliche Gesundheit und soziales Wohlergehen im Rahmen der Nördlichen Dimension (NDPHS)
+- **Neckar-MainG** Gesetz über die Enteignung von Grundeigentum und über die Beitragsleistung bei der Kanalisierung des Neckars von Mannheim bis Plochingen und des Mains von Aschaffenburg bis Bamberg sowie zum Ausbau der Donau von Passau bis Kelheim
+- **NEhelG** Gesetz über die rechtliche Stellung der nichtehelichen Kinder
+- **NetzDG** Gesetz zur Verbesserung der Rechtsdurchsetzung in sozialen Netzwerken
+- **NeuBezG** Gesetz über die Neubezeichnung von Blättern für öffentliche Bekanntmachungen
+- **NichtAnpG** Gesetz über die Nichtanpassung von Amtsgehalt und Ortszuschlag der Mitglieder der Bundesregierung und der Parlamentarischen Staatssekretäre
+- **NiederlFrhEWGDG-1** Gesetz zur Durchführung von Richtlinien der Europäischen Wirtschaftsgemeinschaft über die Niederlassungsfreiheit und den freien Dienstleistungsverkehr
+- **NiederlFrhEWGDG-2** Zweites Gesetz zur Durchführung von Richtlinien der Europäischen Wirtschaftsgemeinschaft über die Niederlassungsfreiheit und den freien Dienstleistungsverkehr
+- **NiSG** Gesetz zum Schutz vor nichtionisierender Strahlung bei der Anwendung am Menschen
+- **NKRG** Gesetz zur Einsetzung eines Nationalen Normenkontrollrates
+- **NordSBrWeinG** Gesetz betreffend die Ausführung des internationalen Vertrages vom 16. November 1887/14. Februar 1893 zur Unterdrückung des Branntweinhandels unter den Nordseefischern auf hoher See
+- **NotAufnGAufhG** Gesetz zur Aufhebung des Aufnahmegesetzes
+- **NotRMaßnG** Gesetz über Maßnahmen auf dem Gebiete des Notarrechts
+- **NotSanG** Gesetz über den Beruf der Notfallsanitäterin und des Notfallsanitäters
+- **NotTrauG** Gesetz über die Anerkennung von Nottrauungen
+- **NpSG** Neue-psychoaktive-Stoffe-Gesetz
+- **NS-AufhG** Gesetz zur Aufhebung nationalsozialistischer Unrechtsurteile in der Strafrechtspflege
+- **NS-VEntschG** NS-Verfolgtenentschädigungsgesetz
+- **NSOEBGG** Gesetz über Entschädigungen für Opfer des Nationalsozialismus im Beitrittsgebiet
+- **NSUnrUrtBesG** Gesetz zur Beseitigung nationalsozialistischer Unrechtsurteile
+- **NSVerbG** Gesetz zur Regelung der Verbindlichkeiten nationalsozialistischer Einrichtungen und der Rechtsverhältnisse an deren Vermögen
+- **NukHaftÜbk-AtHaftÜbkGemProtG** Gesetz zu dem Gemeinsamen Protokoll vom 21. September 1988 über die Anwendung des Wiener Übereinkommens und des Pariser Übereinkommens (Gesetz zu dem Gemeinsamen Protokoll über die Anwendung des Wiener Übereinkommens und des Pariser Übereinkommens)
+- **NuklVerbVtrG** Gesetz zu dem Vertrag vom 24. September 1996 über das umfassende Verbot von Nuklearversuchen
+- **NutzZG** Gesetz über nutzungsbezogene Zuschläge bei Verwendung der elektronischen Gesundheitskarte außerhalb der Gesetzlichen Krankenversicherung
+- **NWRG** Gesetz zur Errichtung eines Nationalen Waffenregisters
+- **OASG** Gesetz zur Sicherung der zivilrechtlichen Ansprüche der Opfer von Straftaten
+- **ÖBeteilProgG** Gesetz über die Beteiligung der Öffentlichkeit bei der Aufstellung von Batterieprogrammen
+- **ÖDStatG** Gesetz über eine Statistik des Personals, der Dienstbezüge, Vergütungen und Löhne im öffentlichen Dienst
+- **ÖDZustG** Gesetz über die Zuständigkeit auf dem Gebiet des Rechts des öffentlichen Dienstes
+- **OEG** Gesetz über die Entschädigung für Opfer von Gewalttaten
+- **OEGÄndG-2** Zweites Gesetz zur Änderung des Gesetzes über die Entschädigung für Opfer von Gewalttaten
+- **ÖkoKennzG** Gesetz zur Einführung und Verwendung eines Kennzeichens für Erzeugnisse des ökologischen Landbaus
+- **ÖLG** Gesetz zur Durchführung der Rechtsakte der Europäischen Gemeinschaft auf dem Gebiet des ökologischen Landbaus
+- **ÖLG-2009** Gesetz zur Durchführung der Rechtsakte der Europäischen Union auf dem Gebiet des ökologischen Landbaus
+- **ÖlHaftG** Gesetz zu den Internationalen Übereinkommen vom 29. November 1969 über die zivilrechtliche Haftung für Ölverschmutzungsschäden und vom 18. Dezember 1971 über die Errichtung eines Internationalen Fonds zur Entschädigung für Ölverschmutzungsschäden
+- **ÖlHaftÜbkuaProtG** Gesetz zu den Protokollen vom 27. November 1992 zur Änderung des Internationalen Übereinkommens von 1969 über die zivilrechtliche Haftung für Ölverschmutzungsschäden und zur Änderung des Internationalen Übereinkommens von 1971 über die Errichtung eines Internationalen Fonds zur Entschädigung für Ölverschmutzungsschäden
+- **ÖlSG** Gesetz über die Haftung und Entschädigung für Ölverschmutzungsschäden durch Seeschiffe
+- **ÖlUnfÜbkG** Gesetz zu dem Internationalen Übereinkommen vom 29. November 1969 über Maßnahmen auf Hoher See bei Ölverschmutzungs-Unfällen
+- **OffshStAbkG** Gesetz betreffend das Abkommen zwischen der Bundesrepublik Deutschland und den Vereinigten Staaten von Amerika vom 15. Oktober 1954 über die von der Bundesrepublik zu gewährenden Abgabenvergünstigungen für die von den Vereinigten Staaten im Interesse der gemeinsamen Verteidigung geleisteten Ausgaben
+- **OffshStAbkGÄndG** Gesetz zur Änderung des Offshore-Steuergesetzes
+- **OKZusAAbkLTU-SVNG** Gesetz zu den Abkommen über die Zusammenarbeit bei der Bekämpfung der Organisierten Kriminalität zwischen der Regierung der Bundesrepublik Deutschland und der Regierung der Republik Litauen vom 23. Februar 2001 und zwischen der Regierung der Bundesrepublik Deutschland und der Regierung der Republik Slowenien vom 2. März 2001
+- **OKZusAAbkVNMG** Gesetz zu dem Abkommen vom 31. August 2006 zwischen der Regierung der Bundesrepublik Deutschland und der Regierung der Sozialistischen Republik Vietnam über die Zusammenarbeit bei der Bekämpfung von schwerwiegenden Straftaten und der Organisierten Kriminalität
+- **OldenbG** Gesetz über die Regelung der Landeszugehörigkeit des Verwaltungsbezirks Oldenburg und des Landkreises Schaumburg-Lippe nach Artikel 29 Abs. 3 Satz 2 des Grundgesetzes
+- **OlympiaMünzG** Gesetz über die Ausprägung einer Olympiamünze
+- **OlympSchG** Gesetz zum Schutz des olympischen Emblems und der olympischen Bezeichnungen
+- **OPrAGebG** Gesetz über die Gebühren des Oberprüfungsamtes für die höheren technischen Verwaltungsbeamten
+- **OrdenG** Gesetz über Titel, Orden und Ehrenzeichen
+- **OrgKVerbG** Gesetz zur Verbesserung der Bekämpfung der Organisierten Kriminalität
+- **OrthoptG** Gesetz über den Beruf der Orthoptistin und des Orthoptisten
+- **OstSUmwSchÜbkG** Gesetz zu dem Übereinkommen vom 22. März 1974 über den Schutz der Meeresumwelt des Ostseegebiets
+- **OWiG-1968** Gesetz über Ordnungswidrigkeiten
+- **OWiGEG** Einführungsgesetz zum Gesetz über Ordnungswidrigkeiten
+- **OZG** Gesetz zur Verbesserung des Onlinezugangs zu Verwaltungsleistungen
+- **OzonSÜbkG** Gesetz zu dem Übereinkommen vom 22. März 1985 zum Schutz der Ozonschicht
+- **PachtkredG** Pachtkreditgesetz
+- **ParlBG** Gesetz über die parlamentarische Beteiligung bei der Entscheidung über den Einsatz bewaffneter Streitkräfte im Ausland
+- **ParlGremÄndG** Gesetz zur Änderung von Vorschriften über parlamentarische Gremien
+- **ParlStG-1974** Gesetz über die Rechtsverhältnisse der Parlamentarischen Staatssekretäre
+- **PartG** Gesetz über die politischen Parteien
+- **PartG-DDR** Gesetz über Parteien und andere politische Vereinigungen
+- **PartGG** Gesetz über Partnerschaftsgesellschaften Angehöriger Freier Berufe
+- **PartGuaÄndG-1994** Sechstes Gesetz zur Änderung des Parteiengesetzes und anderer Gesetze
+- **PaßG-1986** Paßgesetz
+- **PatAmtWiGG** Gesetz über die Errichtung eines Patentamts im Vereinigten Wirtschaftsgebiet
+- **PatAnwArmSG-1966** Gesetz über die Beiordnung von Patentanwälten bei Prozeßkostenhilfe
+- **PatAnwO** Patentanwaltsordnung
+- **PatG** Patentgesetz
+- **PatGÄndG-2** Zweites Gesetz zur Änderung des Patentgesetzes und anderer Gesetze
+- **PatGebErstG** Gesetz über die Erstattung von Gebühren des beigeordneten Vertreters in Patent-, Gebrauchsmuster-, Design-, Topographieschutz- und Sortenschutzsachen
+- **PatGebG-1976** Gesetz über die Gebühren des Patentamts und des Patentgerichts
+- **PatGebG1976uaÄndG** Gesetz zur Änderung des Patentgebührengesetzes und anderer Gesetze
+- **PatGuaÄndG** Gesetz zur Änderung des Patentgesetzes, des Warenzeichengesetzes und weiterer Gesetze
+- **PatKostG** Gesetz über die Kosten des Deutschen Patent- und Markenamts und des Bundespatentgerichts
+- **PatVerlG** Gesetz über die Verlängerung der Dauer bestimmter Patente
+- **PAuswG** Gesetz über Personalausweise und den elektronischen Identitätsnachweis
+- **PAZEignPrG** Gesetz über die Eignungsprüfung für die Zulassung zur Patentanwaltschaft
+- **PBefG** Personenbeförderungsgesetz
+- **PBefGÄndG-6** Sechstes Gesetz zur Änderung des Personenbeförderungsgesetzes
+- **PBefStatG** Gesetz zur Durchführung einer Statistik über die Personenbeförderung im Straßenverkehr
+- **PersAnpassG** Gesetz zur Anpassung der Personalstärke der Streitkräfte
+- **PersAuswG** Gesetz über Personalausweise
+- **PersBG** Personalrechtliches Begleitgesetz zum Telekommunikationsgesetz
+- **PersEinspG** Gesetz zur Einsparung von Personalausgaben in der mittelbaren Bundesverwaltung sowie bei der Deutschen Bundesbahn und der Deutschen Bundespost
+- **PersEspmBVwG** Gesetz zur Personaleinsparung in der mittelbaren Bundesverwaltung
+- **PersStärkeG** Gesetz über die Verminderung der Personalstärke der Streitkräfte
+- **PersStdAuszÜbkG** Gesetz zu dem Übereinkommen vom 8. September 1976 über die Ausstellung mehrsprachiger Auszüge aus Personenstandsbüchern
+- **PersStdG** Personenstandsgesetz
+- **PersStdGÄndG** Gesetz zur Änderung und Ergänzung des Personenstandsgesetzes
+- **PersStdGÄndG-2** Zweites Gesetz zur Änderung und Ergänzung des Personenstandsgesetzes
+- **PersStdNamZProtG** Gesetz betreffend das Zusatzprotokoll vom 6. September 1989 zu dem Übereinkommen vom 4. September 1958 über den internationalen Austausch von Auskünften in Personenstandsangelegenheiten
+- **PfändfreiGrÄndG-4** Viertes Gesetz zur Änderung der Pfändungsfreigrenzen
+- **PfändfreiGrÄndG-5** Fünftes Gesetz zur Änderung der Pfändungsfreigrenzen
+- **PfändfreiGrÄndG-6** Sechstes Gesetz zur Änderung der Pfändungsfreigrenzen
+- **PfandBG** Pfandbriefgesetz
+- **PfandBrAUmwG** Gesetz über die Umwandlung der Deutschen Pfandbriefanstalt in eine Aktiengesellschaft
+- **PfandBrG** Gesetz über die Pfandbriefe und verwandten Schuldverschreibungen öffentlich-rechtlicher Kreditanstalten
+- **PfandBrGErgG** Gesetz zur Änderung und Ergänzung des Gesetzes über die Pfandbriefe und verwandten Schuldverschreibungen öffentlich-rechtlicher Kreditanstalten
+- **PfandBrÜblG** Gesetz zur Überleitung der Beteiligung des ehemaligen Landes Preußen am Grundkapital der Deutschen Pfandbriefanstalt auf den Bund
+- **PflBG** Gesetz über die Pflegeberufe
+- **PflegeVG** Gesetz zur sozialen Absicherung des Risikos der Pflegebedürftigkeit
+- **PflegeZG** Gesetz über die Pflegezeit
+- **PflPersRgl** Regelung über Maßstäbe und Grundsätze für den Personalbedarf in der stationären Krankenpflege (Artikel 13 des Gesetzes zur Sicherung und Strukturverbesserung der gesetzlichen Krankenversicherung - Gesundheitsstrukturgesetz)
+- **PflSchAbkG** Gesetz über das Internationale Pflanzenschutzabkommen vom 6. Dezember 1951
+- **PflSchG-1986** Gesetz zum Schutz der Kulturpflanzen
+- **PflSchG-2012** Gesetz zum Schutz der Kulturpflanzen
+- **PflSchMVerkG** Gesetz über das Inverkehrbringen und die Anwendung von Pflanzenschutzmitteln in dem in Artikel 3 des Einigungsvertrages genannten Gebiet
+- **PflVG** Gesetz über die Pflichtversicherung für Kraftfahrzeughalter
+- **PflZSchÜbkG** Gesetz zu den Internationalen Übereinkommen vom 2. Dezember 1961 zum Schutz von Pflanzenzüchtungen
+- **PfPTrStatG** Gesetz zu dem Übereinkommen vom 19. Juni 1995 zwischen den Vertragsstaaten des Nordatlantikvertrags und den anderen an der Partnerschaft für den Frieden teilnehmenden Staaten über die Rechtsstellung ihrer Truppen sowie dem Zusatzprotokoll
+- **PharmAbschlG** Gesetz zur Einführung von Abschlägen der pharmazeutischen Großhändler
+- **PharmAbschlG-2011** Gesetz zur Einführung von Abschlägen der pharmazeutischen Großhändler
+- **PharmTAG** Gesetz über den Beruf des pharmazeutisch-technischen Assistenten
+- **PKGrG** Gesetz über die parlamentarische Kontrolle nachrichtendienstlicher Tätigkeit des Bundes
+- **PKHÄndG** Gesetz zur Änderung von Vorschriften über die Prozeßkostenhilfe
+- **PlVereinfG** Gesetz zur Vereinfachung der Planungsverfahren für Verkehrswege
+- **PodG** Gesetz über den Beruf der Podologin und des Podologen
+- **PolZusuaVtrCHEG** Gesetz zu den Verträgen vom 27. April 1999 und 8. Juli 1999 zwischen der Bundesrepublik Deutschland und der Schweizerischen Eidgenossenschaft über grenzüberschreitende polizeiliche Zusammenarbeit, Auslieferung, Rechtshilfe sowie zu dem Abkommen vom 8. Juli 1999 zwischen der Bundesrepublik Deutschland und der Schweizerischen Eidgenossenschaft über Durchgangsrechte
+- **PostG** Gesetz über das Postwesen
+- **PostG-1998** Postgesetz
+- **PostKlKG** Gesetz über Postkleiderkassen
+- **PostPersRG** Gesetz zum Personalrecht der Beschäftigten der früheren Deutschen Bundespost
+- **PostPersRGÄndG-1** Erstes Gesetz zur Änderung des Postpersonalrechtsgesetzes
+- **PostSVOrgG** Gesetz über die Träger der gesetzlichen Sozialversicherung im Bereich der früheren Deutschen Bundespost
+- **PostUmwG** Gesetz zur Umwandlung der Unternehmen der Deutschen Bundespost in die Rechtsform der Aktiengesellschaft
+- **PostVerfG** Gesetz über die Unternehmensverfassung der Deutschen Bundespost (Artikel 1 des Gesetzes zur Neustrukturierung des Post- und Fernmeldewesens und der Deutschen Bundespost)
+- **PreisAngG** Gesetz über die Preisangaben
+- **PreisG** Übergangsgesetz über Preisbildung und Preisüberwachung
+- **PreisStatG** Gesetz über die Preisstatistik
+- **PresseratG** Gesetz zur Gewährleistung der Unabhängigkeit des vom Deutschen Presserat eingesetzten Beschwerdeausschusses
+- **PresseStatG** Gesetz über eine Pressestatistik
+- **PrHaushStatG** Gesetz über die Statistik der Wirtschaftsrechnungen privater Haushalte
+- **PrKG** Gesetz über das Verbot der Verwendung von Preisklauseln bei der Bestimmung von Geldschulden
+- **PrKultbG** Gesetz zur Errichtung einer Stiftung "Preußischer Kulturbesitz" und zur Übertragung von Vermögenswerten des ehemaligen Landes Preußen auf die Stiftung
+- **PrldRentBkG** Preußisches Landesrentenbankgesetz
+- **ProdGewStatG** Gesetz über die Statistik im Produzierenden Gewerbe
+- **ProdHaftG** Gesetz über die Haftung für fehlerhafte Produkte
+- **ProdSG** Gesetz zur Regelung der Sicherheitsanforderungen an Produkte und zum Schutz der CE-Kennzeichnung
+- **ProdSG-2011** Gesetz über die Bereitstellung von Produkten auf dem Markt
+- **ProMechG** Gesetz über projektbezogene Mechanismen nach dem Protokoll von Kyoto zum Rahmenübereinkommen der Vereinten Nationen über Klimaänderungen vom 11. Dezember 1997
+- **ProstG** Gesetz zur Regelung der Rechtsverhältnisse der Prostituierten
+- **ProstSchG** Gesetz zum Schutz von in der Prostitution tätigen Personen
+- **ProzKostHiG** Gesetz über die Prozeßkostenhilfe
+- **PrümVtrAG** Ausführungsgesetz zum Prümer Vertrag und zum Ratsbeschluss Prüm
+- **PrZAnrG** Gesetz über die Anrechnung von Dienstzeiten im öffentlichen Dienst auf die beamtenrechtliche Probezeit nach dem Einigungsvertrag
+- **PSA-DG** Gesetz zur Durchführung der Verordnung (EU) 2016/425 des Europäischen Parlaments und des Rates vom 9. März 2016 über persönliche Schutzausrüstungen (PSA) und zur Aufhebung der Richtlinie 89/686/EWG des Rates
+- **PStG** Personenstandsgesetz
+- **PsychKVVerbG** Gesetz zur Verbesserung der ambulanten und teilstationären Versorgung psychisch Kranker
+- **PsychotrStÜbkG** Gesetz zu dem Übereinkommen vom 21. Februar 1971 über psychotrope Stoffe
+- **PsychPbG** Gesetz über die psychosoziale Prozessbegleitung im Strafverfahren
+- **PsychThG** Gesetz über die Berufe des Psychologischen Psychotherapeuten und des Kinder- und Jugendlichenpsychotherapeuten
+- **PsychThG-2020** Gesetz über den Beruf der Psychotherapeutin und des Psychotherapeuten
+- **PsychThG-SGB5uaÄndG** Gesetz über die Berufe des Psychologischen Psychotherapeuten und des Kinder- und Jugendlichenpsychotherapeuten, zur Änderung des Fünften Buches Sozialgesetzbuch und anderer Gesetze
+- **PTAG** Gesetz über den Beruf der pharmazeutisch-technischen Assistentin und des pharmazeutisch-technischen Assistenten
+- **PTNeuOG** Gesetz zur Neuordnung des Postwesens und der Telekommunikation
+- **PTRegG** Gesetz über die Regulierung der Telekommunikation und des Postwesens
+- **PTSG** Gesetz zur Sicherstellung des Postwesens und der Telekommunikation
+- **PTSG-2011** Gesetz zur Sicherstellung von Postdienstleistungen und Telekommunikationsdiensten in besonderen Fällen
+- **PTStiftG** Gesetz zur Errichtung einer Museumsstiftung Post und Telekommunikation
+- **PUAG** Gesetz zur Regelung des Rechts der Untersuchungsausschüsse des Deutschen Bundestages
+- **PublG** Gesetz über die Rechnungslegung von bestimmten Unternehmen und Konzernen
+- **PVÜAG** Gesetz zur Ausführung der revidierten Pariser Übereinkunft vom 2. Juni 1911 zum Schutz des gewerblichen Eigentums
+- **PVÜG** Gesetz zu den am 24. Juli 1971 in Paris unterzeichneten Übereinkünften auf dem Gebiet des Urheberrechts
+- **QVG** Gesetz zur Regelung von Übermittlungen von Einzelangaben zur Prüfung und Verbesserung der Qualität der Behandlung von multinationalen Unternehmensgruppen in den Volkswirtschaftlichen Gesamtrechnungen
+- **RAAG** Gesetz über die Aussetzung der Anpassung der Renten zum 1. Juli 2004
+- **RAAG-2006** Gesetz über die Aussetzung der Anpassung der Renten zum 1. Juli 2006
+- **RÄKammerAbwG** Gesetz zur Abwicklung der Reichsärztekammer
+- **RAFachBezG** Gesetz über Fachanwaltsbezeichnungen nach der Bundesrechtsanwaltsordnung (Artikel 1 des Gesetzes über Fachanwaltsbezeichnungen nach der Bundesrechtsanwaltsordnung und zur Änderung der Bundesrechtsanwaltsordnung)
+- **RAG-1** Erstes Gesetz über die Anpassung der Renten aus den gesetzlichen Rentenversicherungen aus Anlaß der Veränderung der allgemeinen Bemessungsgrundlage für das Jahr 1958
+- **RAG-10** Zehntes Gesetz über die Anpassung der Renten aus den gesetzlichen Rentenversicherungen sowie über die Anpassung der Geldleistungen aus der gesetzlichen Unfallversicherung
+- **RAG-11** Elftes Gesetz über die Anpassung der Renten aus den gesetzlichen Rentenversicherungen sowie über die Anpassung der Geldleistungen aus der gesetzlichen Unfallversicherung
+- **RAG-12** Zwölftes Gesetz über die Anpassung der Renten aus den gesetzlichen Rentenversicherungen sowie über die Anpassung der Geldleistungen aus der gesetzlichen Unfallversicherung (Art. 4 d. Dritten Rentenversicherungs- Änderungsgesetzes - 3. RVÄndG)
+- **RAG-13** Dreizehntes Gesetz über die Anpassung der Renten aus den gesetzlichen Rentenversicherungen sowie über die Anpassung der Geldleistungen aus der gesetzlichen Unfallversicherung
+- **RAG-14** Vierzehntes Gesetz über die Anpassung der Renten aus den gesetzlichen Rentenversicherungen sowie über die Anpassung der Geldleistungen aus der gesetzlichen Unfallversicherung
+- **RAG-15** Fünfzehntes Gesetz über die Anpassung der Renten aus den gesetzlichen Rentenversicherungen sowie über die Anpassung der Geldleistungen aus der gesetzlichen Unfallversicherung
+- **RAG-16** Sechzehntes Gesetz über die Anpassung der Renten aus den gesetzlichen Rentenversicherungen sowie über die Anpassung der Geldleistungen aus der gesetzlichen Unfallversicherung
+- **RAG-17** Siebzehntes Gesetz über die Anpassung der Renten aus den gesetzlichen Rentenversicherungen sowie über die Anpassung der Geldleistungen aus der gesetzlichen Unfallversicherung und der Altersgelder in der Altershilfe für Landwirte
+- **RAG-18** Achtzehntes Gesetz über die Anpassung der Renten aus den gesetzlichen Rentenversicherungen sowie über die Anpassung der Geldleistungen aus der gesetzlichen Unfallversicherung und der Altersgelder in der Altershilfe für Landwirte
+- **RAG-19** Neunzehntes Gesetz über die Anpassung der Renten aus den gesetzlichen Rentenversicherungen sowie über die Anpassung der Geldleistungen aus der gesetzlichen Unfallversicherung und der Altersgelder in der Altershilfe für Landwirte
+- **RAG-1982** Rentenanpassungsgesetz 1982 (Artikel 1 des Gesetzes über die Anpassung der Renten der gesetzlichen Rentenversicherung im Jahr 1982)
+- **RAG-1983** Rentenanpassungsgesetz 1983 (Artikel 18 des Gesetzes zur Wiederbelebung der Wirtschaft und Beschäftigung und zur Entlastung des Bundeshaushalts - Haushaltsbegleitgesetz 1983)
+- **RAG-1984** Rentenanpassungsgesetz 1984 (Artikel 1 des Gesetzes über die Anpassung der Renten der gesetzlichen Rentenversicherung und der Geldleistungen der gesetzlichen Unfallversicherung im Jahre 1984)
+- **RAG-1985** Rentenanpassungsgesetz 1985 (Artikel 1 des Gesetzes über die Anpassung der Renten der gesetzlichen Rentenversicherung und der Geldleistungen der gesetzlichen Unfallversicherung im Jahre 1985)
+- **RAG-1986** Rentenanpassungsgesetz 1986 (Artikel 1 des Gesetzes über die Anpassung der Renten der gesetzlichen Rentenversicherung und der Geldleistungen der gesetzlichen Unfallversicherung im Jahre 1986)
+- **RAG-1987** Rentenanpassungsgesetz 1987
+- **RAG-1988** Rentenanpassungsgesetz 1988
+- **RAG-1989** Rentenanpassungsgesetz 1989
+- **RAG-1990** Rentenanpassungsgesetz 1990
+- **RAG-1991** Rentenanpassungsgesetz 1991
+- **RAG-2** Zweites Gesetz über die Anpassung der Renten aus den gesetzlichen Rentenversicherungen aus Anlaß der Veränderung der allgemeinen Bemessungsgrundlage für das Jahr 1959
+- **RAG-20** Gesetz zur Zwanzigsten Rentenanpassung und zur Verbesserung der Finanzgrundlagen der gesetzlichen Rentenversicherung
+- **RAG-21** Einundzwanzigstes Gesetz über die Anpassung der Renten aus der gesetzlichen Rentenversicherung sowie über die Anpassung der Geldleistungen aus der gesetzlichen Unfallversicherung und der Altersgelder in der Altershilfe für Landwirte
+- **RAG-3** Drittes Gesetz über die Anpassung der Renten aus den gesetzlichen Rentenversicherungen aus Anlaß der Veränderung der allgemeinen Bemessungsgrundlage für das Jahr 1960
+- **RAG-4** Viertes Gesetz über die Anpassung der Renten aus den gesetzlichen Rentenversicherungen aus Anlaß der Veränderung der allgemeinen Bemessungsgrundlage für das Jahr 1961
+- **RAG-5** Fünftes Gesetz über die Anpassung der Renten aus den gesetzlichen Rentenversicherungen aus Anlaß der Veränderung der allgemeinen Bemessungsgrundlage für das Jahr 1962
+- **RAG-6** Sechstes Gesetz über die Anpassung der Renten aus den gesetzlichen Rentenversicherungen sowie über die Anpassung der Geldleistungen aus der gesetzlichen Unfallversicherung
+- **RAG-7** Siebentes Gesetz über die Anpassung der Renten aus den gesetzlichen Rentenversicherungen sowie über die Anpassung der Geldleistungen aus der gesetzlichen Unfallversicherung
+- **RAG-8** Achtes Gesetz über die Anpassung der Renten aus den gesetzlichen Rentenversicherungen sowie über die Anpassung der Geldleistungen aus der gesetzlichen Unfallversicherung
+- **RAG-9** Neuntes Gesetz über die Anpassung der Renten aus den gesetzlichen Rentenversicherungen sowie über die Anpassung der Geldleistungen aus der gesetzlichen Unfallversicherung
+- **RAnlV** Verordnung über die Behandlung von Anleihen des Deutschen Reichs im Bank- und Börsenverkehr
+- **RAnwG** Rechtsanwaltsgesetz
+- **RAnwV** Verordnung über die Rechtsanwendung bei Schädigungen deutscher Staatsangehöriger außerhalb des Reichsgebiets
+- **RAuaZulPrG** Gesetz zur Prüfung von Rechtsanwaltszulassungen, Notarbestellungen und Berufungen ehrenamtlicher Richter
+- **RAÜG** Gesetz zur Übertragung von Verwaltungsaufgaben auf dem Gebiet der Raumfahrt
+- **RaumOG** Raumordnungsgesetz
+- **RaumsÜbkG** Gesetz zu dem Übereinkommen vom 29. September 1988 zwischen der Regierung der Vereinigten Staaten von Amerika, Regierungen von Mitgliedstaaten der Europäischen Weltraumorganisation, der Regierung Japans und der Regierung Kanadas über Zusammenarbeit bei Detailentwurf, Entwicklung, Betrieb und Nutzung der ständig bemannten zivilen Raumstation
+- **RAuskÜbkZProtG** Gesetz zum Zusatzprotokoll vom 15. März 1978 zum Europäischen Übereinkommen betreffend Auskünfte über ausländisches Recht
+- **RAZEignPrG** Gesetz über die Eignungsprüfung für die Zulassung zur Rechtsanwaltschaft (Artikel 1 des Gesetzes zur Umsetzung der Richtlinie des Rates vom 21. Dezember 1988 über eine allgemeine Regelung zur Anerkennung der Hochschuldiplome, die eine mindestens dreijährige Berufsausbildung abschließen, für die Berufe des Rechtsanwalts und des Patentanwalts)
+- **RBahnG-1939** Gesetz über die Deutsche Reichsbahn
+- **RBankNPapG** Gesetz betreffend den Schutz des zur Anfertigung von Reichsbanknoten verwendeten Papiers gegen unbefugte Nachahmung
+- **RBEG** Gesetz zur Ermittlung der Regelbedarfe nach § 28 des Zwölften Buches Sozialgesetzbuch
+- **RBEG-2017** Gesetz zur Ermittlung der Regelbedarfe nach § 28 des Zwölften Buches Sozialgesetzbuch
+- **RBeistGeb** Artikel IX des Gesetzes zur Änderung und Ergänzung kostenrechtlicher Vorschriften
+- **RBerG** Rechtsberatungsgesetz
+- **RBerG-1** Erstes Rechtsbereinigungsgesetz
+- **RBerG-2** Zweites Rechtsbereinigungsgesetz
+- **RBkG** Gesetz über die Deutsche Reichsbank
+- **RBkLiqG** Gesetz über die Liquidation der Deutschen Reichsbank und der Deutschen Golddiskontbank
+- **RBkVermVwG** Gesetz betreffend die Treuhandverwaltung über das Vermögen der Deutschen Reichsbank
+- **RbtG** Gesetz über Preisnachlässe
+- **RdFunkAuslG** Gesetz über den deutschen Auslandsrundfunk
+- **RdFunkG** Gesetz über die Errichtung von Rundfunkanstalten des Bundesrechts
+- **RdFunkGÄndG-1** Erstes Gesetz zur Änderung des Gesetzes über die Errichtung von Rundfunkanstalten des Bundesrechts
+- **RdFunkNG** Gesetz über die Neuordnung der Rundfunkanstalten des Bundesrechts und des RIAS Berlin
+- **RDG** Gesetz über außergerichtliche Rechtsdienstleistungen
+- **RDGEG** Einführungsgesetz zum Rechtsdienstleistungsgesetz
+- **RechnjAnpG** Gesetz zur Anpassung des Rechnungsjahres an das Kalenderjahr
+- **RED-G** Gesetz zur Errichtung einer standardisierten zentralen Datei von Polizeibehörden und Nachrichtendiensten von Bund und Ländern zur Bekämpfung des gewaltbezogenen Rechtsextremismus
+- **ReföDG** Gesetz zur Reform des öffentlichen Dienstrechts
+- **RegelBetrV** Regelbetrag-Verordnung
+- **RegG** Gesetz zur Regionalisierung des öffentlichen Personennahverkehrs
+- **RegVBG** Gesetz zur Vereinfachung und Beschleunigung registerrechtlicher und anderer Verfahren
+- **RehaAnglG** Gesetz über die Angleichung der Leistungen zur Rehabilitation
+- **REinhG** Gesetz zur Wiederherstellung der Rechtseinheit auf dem Gebiete der Gerichtsverfassung, der bürgerlichen Rechtspflege, des Strafverfahrens und des Kostenrechts
+- **REITG** Gesetz über deutsche Immobilien-Aktiengesellschaften mit börsennotierten Anteilen
+- **RennwLottG** Rennwett- und Lotteriegesetz
+- **RentAufbG** Gesetz über Leistungen aus vor der Währungsreform eingegangenen Renten- und Pensionsversicherungen
+- **RentAufbG-1956** Gesetz zur Aufbesserung von Leistungen aus Renten- und Pensionsversicherungen sowie aus Kapitalzwangsversicherungen
+- **RentAufbG-1963** Gesetz zur weiteren Aufbesserung von Leistungen aus Renten- und Pensionsversicherungen sowie aus Kapitalzwangsversicherungen
+- **RentBkGrSchG** Gesetz über die Rentenbankgrundschuld
+- **RepG** Gesetz zur Abgeltung von Reparations-, Restitutions-, Zerstörungs- und Rückerstattungsschäden
+- **ResG** Gesetz über die Rechtsstellung der Reservisten
+- **RettAssG** Gesetz über den Beruf der Rettungsassistentin und des Rettungsassistenten
+- **RettungsG** Gesetz zur Rettung von Unternehmen zur Stabilisierung des Finanzmarktes
+- **RFG** Gesetz über die Neuregelung des Finanzausgleichs zwischen der Rentenversicherung der Arbeiter und der Rentenversicherung der Angestellten
+- **RGZustG** Gesetz, betreffend die Zuständigkeit des Reichsgerichts
+- **RHBG** Gesetz über die Haftung des Reichs für seine Beamten
+- **RHeimstGAufhG** Gesetz zur Aufhebung des Reichsheimstättengesetzes
+- **Rhein-BinSchAbfÜbkAG** Ausführungsgesetz zu dem Übereinkommen vom 9. September 1996 über die Sammlung, Abgabe und Annahme von Abfällen in der Rhein- und Binnenschifffahrt
+- **Rhein-BinSchAbfÜbkG** Gesetz zu dem Übereinkommen vom 9. September 1996 über die Sammlung, Abgabe und Annahme von Abfällen in der Rhein- und Binnenschifffahrt
+- **RheinBodSeeSchÜbkG** Gesetz zu dem Übereinkommen vom 1. Juni 1973 über die Schiffahrt auf dem Bodensee und zu dem Vertrag vom 1. Juni 1973 über die Schiffahrt auf dem Untersee und dem Rhein zwischen Konstanz und Schaffhausen
+- **RheinBrückEschauVtrG** Gesetz zu dem Vertrag vom 5. Juni 1996 zwischen der Bundesrepublik Deutschland und der Französischen Republik über den Bau einer Straßenbrücke über den Rhein zwischen Altenheim und Eschau
+- **RheinfallVtrG-CHE** Gesetz zu dem Vertrag vom 23. November 1964 zwischen der Bundesrepublik Deutschland und der Schweizerischen Eidgenossenschaft über die Bereinigung der Grenze im Abschnitt Konstanz-Neuhausen am Rheinfall
+- **RheinMainDonSchStrG** Gesetz über den rechtlichen Status der Rhein-Main-Donau-Großschiffahrtsstraße zwischen dem Main und Nürnberg und über die damit zusammenhängenden Eigentumsverhältnisse
+- **RheinSchÜbkG** Gesetz zu dem Übereinkommen vom 20. November 1963 zur Revision der am 17. Oktober 1868 in Mannheim unterzeichneten Revidierten Rheinschiffahrtsakte
+- **RHiVtrCANG** Gesetz zu dem Vertrag vom 13. Mai 2002 zwischen der Bundesrepublik Deutschland und Kanada über die Rechtshilfe in Strafsachen
+- **RHiVtrPRTG** Gesetz zu dem Vertrag vom 15. Juni 1964 zwischen der Bundesrepublik Deutschland und der Republik von Portugal über die Auslieferung und die Rechtshilfe in Strafsachen
+- **RHiVtrYUGG** Gesetz zu dem Vertrag vom 1. Oktober 1971 zwischen der Bundesrepublik Deutschland und der Sozialistischen Föderativen Republik Jugoslawien über die Rechtshilfe in Strafsachen
+- **RiAmtBezG** Gesetz zur Änderung der Bezeichnungen der Richter und ehrenamtlichen Richter und der Präsidialverfassung der Gerichte
+- **RiAmtBezGÄndG** Gesetz zur Änderung von Bezeichnungen der Richter und ehrenamtlichen Richter
+- **RiFlEtikettG** Gesetz zur Durchführung der Rechtsakte der Europäischen Gemeinschaft oder der Europäischen Union über die besondere Etikettierung von Rindfleisch und Rindfleischerzeugnissen und über die Verkehrsbezeichnung und Kennzeichnung von Fleisch von weniger als zwölf Monate alten Rindern
+- **RiWG** Richterwahlgesetz
+- **RJagdG** Reichsjagdgesetz
+- **RKGÄndG** Gesetz zur Änderung des Reichsknappschaftsgesetzes
+- **RKGEG** Einführungsgesetz zum Reichsknappschaftsgesetz
+- **RKonkordatDG** Gesetz zur Durchführung des Reichskonkordats
+- **RMSaarUmwG** Gesetz über die Umwandlung von Reichsmarkguthaben im Saarland
+- **RMVerblG** Gesetz über Reichsmarkverbindlichkeiten zwischen Gebietskörperschaften
+- **RNährStAbwG** Gesetz über die Abwicklung des Reichsnährstands und seiner Zusammenschlüsse
+- **RobErhÜbkG** Gesetz zu dem Übereinkommen vom 1. Juni 1972 zur Erhaltung der antarktischen Robben
+- **ROG** Raumordnungsgesetz
+- **ROG-2008** Raumordnungsgesetz
+- **RohstoffStatG** Gesetz über Statistiken der Rohstoff- und Produktionswirtschaft einzelner Wirtschaftszweige
+- **RohstoffStatG-2004** Gesetz zur Neuordnung der Statistiken der Rohstoff- und Produktionswirtschaft einzelner Wirtschaftszweige
+- **RpflAnpG** Gesetz zur Anpassung der Rechtspflege im Beitrittsgebiet
+- **RPflEntlG** Gesetz zur Entlastung der Rechtspflege
+- **RPflG-1969** Rechtspflegergesetz
+- **RPflG-BeurkGÄndG** Gesetz zur Änderung des Rechtspflegergesetzes, des Beurkundungsgesetzes und zur Umwandlung des Offenbarungseides in eine eidesstattliche Versicherung
+- **RPflGÄndG-2** Zweites Gesetz zur Änderung des Rechtspflegergesetzes
+- **RpflVereinfG** Rechtspflege-Vereinfachungsgesetz
+- **RPNeuOG** Gesetz zur Neuordnung des Berufsrechts der Rechtsanwälte und der Patentanwälte
+- **RPresseG** Gesetz über die Presse
+- **RRG** Gesetz zur weiteren Reform der gesetzlichen Rentenversicherungen und über die Fünfzehnte Anpassung der Renten aus den gesetzlichen Rentenversicherungen sowie über die Anpassung der Geldleistungen aus der gesetzlichen Unfallversicherung
+- **RRG-1992** Gesetz zur Reform der gesetzlichen Rentenversicherung
+- **RSBG** Reichsschuldbuchgesetz
+- **RSchVtrAUTG** Gesetz über den Vertrag über Rechtsschutz und Rechtshilfe und den Beglaubigungsvertrag zwischen dem Deutschen Reich und der Republik Österreich
+- **RSiedlG** Reichssiedlungsgesetz
+- **RSiedlGErgG-1935** Gesetz zur Ergänzung des Reichssiedlungsgesetzes
+- **RsprEinhG** Gesetz zur Wahrung der Einheitlichkeit der Rechtsprechung der obersten Gerichtshöfe des Bundes
+- **RStruktFG** Gesetz zur Errichtung eines Restrukturierungsfonds für Kreditinstitute
+- **RTrAbwG** Gesetz zur Regelung der Rechtsverhältnisse nicht mehr bestehender öffentlicher Rechtsträger
+- **RUAStrGHG** Gesetz über die Zusammenarbeit mit dem Internationalen Strafgerichtshof für Ruanda
+- **Rü-ErgG** Gesetz zur Ergänzung der Rentenüberleitung
+- **RückHG** Rückkehrhilfegesetz
+- **RÜG** Gesetz zur Herstellung der Rechtseinheit in der gesetzlichen Renten- und Unfallversicherung
+- **RüstKontrG** Gesetz zu dem Übereinkommen vom 14. Dezember 1957 über Rüstungskontrollmaßnahmen der Westeuropäischen Union
+- **RuStAG** Staatsangehörigkeitsgesetz
+- **RuStAGÄndG** Gesetz zur Änderung des Reichs- und Staatsangehörigkeitsgesetzes
+- **RuStAGÄndG-1963** Gesetz zur Änderung des Reichs- und Staatsangehörigkeitsgesetzes
+- **RuStAGÄndG-1974** Gesetz zur Änderung des Reichs- und Staatsangehörigkeitsgesetzes
+- **RuStFöG** Gesetz zur Förderung eines gleitenden Übergangs in den Ruhestand
+- **RV-UVAbkPOLG** Gesetz zu dem Abkommen vom 9. Oktober 1975 zwischen der Bundesrepublik Deutschland und der Volksrepublik Polen über Renten- und Unfallversicherung nebst der Vereinbarung hierzu vom 9. Oktober 1975
+- **RV-UVRAG-1987** Gesetz über die Anpassung der Renten der gesetzlichen Rentenversicherung und der Geldleistungen der gesetzlichen Unfallversicherung im Jahre 1987
+- **RVÄndG-2** Zweites Rentenversicherungs-Änderungsgesetz
+- **RVBund-KnErG** Gesetz zur Errichtung der Deutschen Rentenversicherung Bund und der Deutschen Rentenversicherung Knappschaft-Bahn-See
+- **RVBZuschußG** Gesetz zur Änderung der Bundeszuschüsse zu den Rentenversicherungen der Arbeiter und der Angestellten aus Anlaß der wirtschaftlichen Eingliederung des Saarlandes in die Bundesrepublik sowie zur Einführung der Vorschriften über die Gemeinlast und weiterer sozialversicherungsrechtlicher Vorschriften im Saarland
+- **RVChilAbkG** Gesetz zu dem Abkommen vom 5. März 1993 zwischen der Bundesrepublik Deutschland und der Republik Chile über Rentenversicherung
+- **RVerkAbkGBRG** Gesetz wegen des deutsch-britischen Abkommens über den Rechtsverkehr
+- **RVerkAbkTURG** Gesetz über das deutsch-türkische Abkommen über den Rechtsverkehr in Zivil- und Handelssachen
+- **RVErmäG** Gesetz über Ermächtigungen zum Erlaß von Rechtsverordnungen
+- **RVermG** Gesetz zur Regelung der Rechtsverhältnisse des Reichsvermögens und der preußischen Beteiligungen
+- **RVermVG** Gesetz zur vorläufigen Regelung der Rechtsverhältnisse des Reichsvermögens und der preußischen Beteiligungen
+- **RVFinanzG** Gesetz zur Stärkung der Finanzgrundlagen der gesetzlichen Rentenversicherung
+- **RVG** Gesetz über die Vergütung der Rechtsanwältinnen und Rechtsanwälte
+- **RVKnSeemannskasseÜG** Gesetz zu Übergangsregelungen zur Eingliederung der Seemannskasse in die Deutsche Rentenversicherung Knappschaft-Bahn-See
+- **RVO** Reichsversicherungsordnung
+- **RVOrgRefBefrG** Gesetz zur Abgaben- und Gerichtskostenbefreiung im Rahmen der Organisationsreform in der gesetzlichen Rentenversicherung
+- **RVOrgRefÜG** Gesetz zu Übergangsregelungen zur Organisationsreform in der gesetzlichen Rentenversicherung
+- **RVStreitkrAbkUSAG** Gesetz zu dem Abkommen vom 11. September 1970 zwischen der Bundesrepublik Deutschland und den Vereinigten Staaten von Amerika über die Rentenversicherung gewisser Arbeitnehmer der Landstreitkräfte der Vereinigten Staaten von Amerika
+- **RVVerkG** Gesetz über die Verkündung von Rechtsverordnungen und Bekanntmachungen
+- **RWBestG-2008** Gesetz über die Bestimmung der aktuellen Rentenwerte ab 1.Juli 2008
+- **SaarEinglG** Gesetz über die Eingliederung des Saarlandes
+- **SaarVtrG** Gesetz über den Vertrag zwischen der Bundesrepublik Deutschland und der Französischen Republik zur Regelung der Saarfrage
+- **SaatVerkG-1985** Saatgutverkehrsgesetz
+- **SachenRÄndG** Gesetz zur Änderung sachenrechtlicher, grundbuchrechtlicher und anderer Vorschriften
+- **SachenRÄndG-1994** Gesetz zur Änderung sachenrechtlicher Bestimmungen
+- **SachenRBerG** Gesetz zur Sachenrechtsbereinigung im Beitrittsgebiet
+- **SachvRatG** Gesetz über die Bildung eines Sachverständigenrates zur Begutachtung der gesamtwirtschaftlichen Entwicklung
+- **SAEGÜSchG** Gesetz zur Gewährleistung der Geheimhaltung der dem Statistischen Amt der Europäischen Gemeinschaften übermittelten vertraulichen Daten
+- **SAFleischWiG** Gesetz zur Sicherung von Arbeitnehmerrechten in der Fleischwirtschaft
+- **SAG** Gesetz zur Sanierung und Abwicklung von Instituten und Finanzgruppen
+- **SanG-2017** Sanierungshilfengesetz
+- **SaRegG** Gesetz zur Errichtung eines Samenspenderregisters und zur Regelung der Auskunftserteilung über den Spender nach heterologer Verwendung von Samen
+- **SatDSiG** Gesetz zum Schutz vor Gefährdung der Sicherheit der Bundesrepublik Deutschland durch das Verbreiten von hochwertigen Erdfernerkundungsdaten
+- **SatellitÜbkG** Gesetz zu dem Übereinkommen vom 21. Mai 1974 über die Verbreitung der durch Satelliten übertragenen programmtragenden Signale
+- **SBG** Soldatenbeteiligungsgesetz
+- **SBG-2016** Soldatinnen- und Soldatenbeteiligungsgesetz
+- **SBkBG** Gesetz über die Staatsbank Berlin
+- **SBkBÜblG** Gesetz über die Überleitung der Staatsbank Berlin (Anlage I Kap. IV Sachgebiet B Abschn. II Nr. 46 EinigVtr)
+- **SCEAG** Gesetz zur Ausführung der Verordnung (EG) Nr. 1435/2003 des Rates vom 22. Juli 2003 über das Statut der Europäischen Genossenschaft (SCE)
+- **SCEBG** Gesetz über die Beteiligung der Arbeitnehmer und Arbeitnehmerinnen in einer Europäischen Genossenschaft
+- **SchadRegProtAG** Gesetz zur Ausführung des Protokolls über Schadstofffreisetzungs- und -verbringungsregister vom 21. Mai 2003 sowie zur Durchführung der Verordnung (EG) Nr. 166/2006
+- **SchaEVZG** Gesetz über eine staatliche Vorauszahlung an durch Straftaten geschädigte Bürger
+- **SchAnpG-2** Zweites Gesetz zur Anpassung bestimmter Bedingungen in der Seeschifffahrt an den internationalen Standard
+- **SchaumwZwStG** Gesetz zur Besteuerung von Schaumwein und Zwischenerzeugnissen
+- **SchaumwZwStG-2009** Schaumwein- und Zwischenerzeugnissteuergesetz
+- **SchBauG** Gesetz über bauliche Maßnahmen zum Schutz der Zivilbevölkerung
+- **SchBerG** Gesetz über die Beschränkung von Grundeigentum für die militärische Verteidigung
+- **SchBkG** Gesetz über Schiffspfandbriefbanken
+- **SchBkGÄndG** Gesetz zur Änderung und Ergänzung des Schiffsbankgesetzes
+- **SchBrÜbkG** Gesetz betreffend das Internationale Übereinkommen über die Gewährung einer Entschädigung für Arbeitslosigkeit infolge von Schiffbruch
+- **SchDBG** Gesetz über Schifferdienstbücher
+- **ScheckG** Scheckgesetz
+- **ScheckGEG** Einführungsgesetz zum Scheckgesetz
+- **SchErsRÄndG** Gesetz zur Änderung schadensersatzrechtlicher Vorschriften
+- **SchfG** Gesetz über das Schornsteinfegerwesen
+- **SchfHwG** Gesetz über das Berufsrecht und die Versorgung im Schornsteinfegerhandwerk
+- **SchiedsG** Gesetz über die Schiedsstellen in den Gemeinden
+- **SchiedsGerG** Gesetz über die schiedsgerichtliche Erledigung privatrechtlicher Streitigkeiten des Reiches und der Länder
+- **SchiedsVfG** Gesetz zur Neuregelung des Schiedsverfahrensrechts
+- **SchlachtG** Gesetz über das Schlachten von Tieren
+- **SchlärmschG** Gesetz zum Verbot des Betriebs lauter Güterwagen
+- **SchLHeimÜbkG** Gesetz betreffend das Internationale Übereinkommen über die Heimschaffung der Schiffsleute
+- **SchlMonAufhG** Gesetz über die Aufhebung des staatlichen Schleppmonopols auf den westdeutschen Kanälen
+- **SchlTSchÜbkG** Gesetz zu dem Europäischen Übereinkommen vom 10. Mai 1979 über den Schutz von Schlachttieren
+- **SchlussFinG** Gesetz zur Errichtung eines Sondervermögens „Vorsorge für Schlusszahlungen für inflationsindexierte Bundeswertpapiere“
+- **SchrAG** Gesetz zur Aufbewahrung und Speicherung von Akten der Gerichte und Staatsanwaltschaften nach Beendigung des Verfahrens
+- **SchRegO** Schiffsregisterordnung
+- **SchRegOÄndG** Gesetz zur Änderung der Schiffsregisterordnung
+- **SchRG** Gesetz über Rechte an eingetragenen Schiffen und Schiffsbauwerken
+- **SchRGÄndG** Gesetz zur Änderung des Gesetzes über Rechte an eingetragenen Schiffen und Schiffsbauwerken, der Schiffsregisterordnung und des Gesetzes über die Zwangsversteigerung und die Zwangsverwaltung
+- **SchrZAbkG** Gesetz zum Wiener Abkommen vom 12. Juni 1973 über den Schutz typographischer Schriftzeichen und ihre internationale Hinterlegung
+- **SchSG** Schiffssicherheitsgesetz
+- **SchSichVtr1960G** Gesetz zum Schiffssicherheitsvertrag vom 17. Juni 1960
+- **SchSprAnerkÜbkG** Gesetz zu dem Übereinkommen vom 10. Juni 1958 über die Anerkennung und Vollstreckung ausländischer Schiedssprüche
+- **SchÜbkDÜbkG** Gesetz zu dem Schengener Übereinkommen vom 19. Juni 1990 betreffend den schrittweisen Abbau der Kontrollen an den gemeinsamen Grenzen
+- **SchuldBBerG** Gesetz zur Behandlung von Schuldbuchforderungen gegen die ehemalige Deutsche Demokratische Republik
+- **SchuldMitüG** Gesetz zur Mitübernahme der Schulden des Erblastentilgungsfonds, des Bundeseisenbahnvermögens sowie des Ausgleichsfonds zur Sicherung des Steinkohleneinsatzes in die Bundesschuld
+- **SchuldRAnpG** Gesetz zur Anpassung schuldrechtlicher Nutzungsverhältnisse an Grundstücken im Beitrittsgebiet
+- **SchuldVerzÄndG** Gesetz zur Änderung von Vorschriften über das Schuldnerverzeichnis
+- **SchuldVwG** Gesetz über die Errichtung einer Schuldenverwaltung des Vereinigten Wirtschaftsgebietes
+- **SchulObG** Gesetz zur Durchführung unionsrechtlicher Vorschriften über das Schulobst- und -gemüseprogramm
+- **SchUnfDatG** Schiffsunfalldatenbankgesetz
+- **SchUrkPapG** Gesetz über den Schutz des zur Anfertigung von Schuldurkunden des Reichs und der Länder verwendeten Papiers gegen unbefugte Nachahmung
+- **SchVermssgÄndÜbkG** Gesetz zu den Änderungen vom 21. Mai 1965 des Übereinkommens über ein einheitliches System der Schiffsvermessung
+- **SchVermssgÜbkG** Gesetz über den Beitritt der Bundesrepublik Deutschland zu dem Übereinkommen über ein einheitliches System der Schiffsvermessung
+- **SchVerschrAnwG** Gesetz über die Anwendung von Vorschriften des Gesetzes betreffend die gemeinsamen Rechte der Besitzer von Schuldverschreibungen
+- **SchVerschrFrdWäG** Gesetz über Fremdwährungs-Schuldverschreibungen
+- **SchVerschrG** Gesetz betreffend die gemeinsamen Rechte der Besitzer von Schuldverschreibungen
+- **SchVG** Gesetz über Schuldverschreibungen aus Gesamtemissionen
+- **SchwarzArbG** Gesetz zur Bekämpfung der Schwarzarbeit
+- **SchwarzArbG-2004** Gesetz zur Bekämpfung der Schwarzarbeit und illegalen Beschäftigung
+- **SchwarzArbVtrG-NLD** Gesetz zu dem Vertrag vom 12. Januar 2012 zwischen der Bundesrepublik Deutschland und dem Königreich der Niederlande über die Zusammenarbeit bei der Bekämpfung des grenzüberschreitenden Missbrauchs bei Sozialversicherungsleistungen und -beiträgen durch Erwerbstätigkeit und bei Leistungen der Grundsicherung für Arbeitsuchende sowie von nicht angemeldeter Erwerbstätigkeit und illegaler grenzüberschreitender Leiharbeit (Deutsch-Niederländischer Vertrag zur Bekämpfung grenzüberschreitender Schwarzarbeit)
+- **SchwbG** Gesetz zur Sicherung der Eingliederung Schwerbehinderter in Arbeit, Beruf und Gesellschaft
+- **SchwbGÄndG** Gesetz zur Änderung des Schwerbeschädigtengesetzes
+- **SchwbWG** Gesetz zur Weiterentwicklung des Schwerbeschädigtenrechts
+- **SchwHG** Gesetz zur Hilfe für Frauen bei Schwangerschaftsabbrüchen in besonderen Fällen
+- **SDDSG** Gesetz zur Regelung des Datenschutzes für den Suchdienst des Deutschen Roten Kreuzes
+- **SEAG** Gesetz zur Ausführung der Verordnung (EG) Nr. 2157/2001 des Rates vom 8. Oktober 2001 über das Statut der Europäischen Gesellschaft (SE)
+- **SEBG** Gesetz über die Beteiligung der Arbeitnehmer in einer Europäischen Gesellschaft
+- **SEDDiktStiftG** Gesetz über die Errichtung einer Stiftung zur Aufarbeitung der SED-Diktatur
+- **SeeAnlG** Seeanlagengesetz
+- **SeeArbG** Seearbeitsgesetz
+- **SeeFischG** Gesetz zur Regelung der Seefischerei und zur Durchführung des Fischereirechts der Europäischen Union
+- **SeeFischVtrG-1976** Gesetz zu dem Übereinkommen vom 23. Oktober 1969 zur Erhaltung der lebenden Schätze des Südostatlantiks, zu dem Protokoll vom 21. Januar 1972 zur Änderung des Übereinkommens vom 20. Dezember 1962 über den Schutz des Lachsbestandes in der Ostsee, zur Konvention vom 13. September 1973 über die Fischerei und den Schutz der lebenden Ressourcen in der Ostsee und den Belten sowie zur Änderung des Seefischerei-Vertragsgesetzes 1971
+- **SeeFrRÄndG** Gesetz zur Änderung von Vorschriften des Handelsgesetzbuchs über das Seefrachtrecht
+- **SeeGVG** Gesetz über die Vollstreckung von Entscheidungen internationaler Gerichte auf dem Gebiet des Seerechts
+- **SeelotG** Gesetz über das Seelotswesen
+- **SeemG** Seemannsgesetz
+- **SeemGÄndG** Gesetz zur Änderung und Ergänzung des Seemannsgesetzes
+- **SeemHeimTportG** Gesetz betreffend die Verpflichtung der Kauffahrteischiffe zur Mitnahme heimzuschaffender Seeleute
+- **SeeRÄndG** Gesetz zur Änderung des Handelsgesetzbuchs und anderer Gesetze
+- **SeeRÄndG-2** Gesetz zur Änderung des Handelsgesetzbuchs und andere Gesetze
+- **SeeRÜbkAG** Gesetz zur Ausführung des Seerechtsübereinkommens der Vereinten Nationen vom 10. Dezember 1982 sowie des Übereinkommens vom 28. Juli 1994 zur Durchführung des Teils XI des Seerechtsübereinkommens
+- **SeeRÜbkG** Gesetz zu dem Seerechtsübereinkommen der Vereinten Nationen vom 10. Dezember 1982
+- **SeeRVertO-1986** Gesetz über das Verfahren bei der Errichtung und Verteilung eines Fonds zur Beschränkung der Haftung in der See- und Binnenschiffahrt
+- **SeeSchHaftÜbk1976ÄndProtAG** Ausführungsgesetz zu dem Protokoll von 1996 zur Änderung des Übereinkommens von 1976 über die Beschränkung der Haftung für Seeforderungen
+- **SeeSchHaftÜbk1976ÄndProtG** Gesetz zu dem Protokoll von 1996 zur Änderung des Übereinkommens von 1976 über die Beschränkung der Haftung für Seeforderungen
+- **SeeSchHaftÜbk1976G** Gesetz zu dem Übereinkommen von 1976 über die Beschränkung der Haftung für Seeforderungen
+- **SeeSchHaftÜbkG** Gesetz zu dem Übereinkommen vom 10. Oktober 1957 über die Beschränkung der Haftung der Eigentümer von Seeschiffen und zu den auf der IX. Diplomatischen Seerechtskonferenz in Brüssel am 10. Mai 1952 geschlossenen Übereinkommen
+- **SeeSchMeldPortalG** Gesetz über das Verfahren für die elektronische Abgabe von Meldungen für Schiffe im Seeverkehr über das Zentrale Meldeportal des Bundes
+- **SeeSchSiÜbkG** Gesetz zu dem Übereinkommen vom 10. März 1988 zur Bekämpfung widerrechtlicher Handlungen gegen die Sicherheit der Seeschiffahrt und zum Protokoll vom 10. März 1988 zur Bekämpfung widerrechtlicher Handlungen gegen die Sicherheit fester Plattformen, die sich auf dem Festlandsockel befinden
+- **SeeSchStatG** Gesetz über die Statistik der Seeschiffahrt
+- **SeeStrO1972ÜbkG** Gesetz zu dem Übereinkommen vom 20. Oktober 1972 über die Internationalen Regeln zur Verhütung von Zusammenstößen auf See
+- **SeeUG** Gesetz über die Untersuchung von Seeunfällen
+- **SeeVerschmProtG** Gesetz zu dem Protokoll von 1973 über Maßnahmen auf Hoher See bei Fällen von Verschmutzung durch andere Stoffe als Öl
+- **SeeVersNachwG** Gesetz über bestimmte Versicherungsnachweise in der Seeschifffahrt
+- **SeilbDG** Gesetz zur Durchführung der Verordnung (EU) 2016/424 des Europäischen Parlaments und des Rates vom 9. März 2016 über Seilbahnen und zur Aufhebung der Richtlinie 2000/9/EG
+- **SekG** Gesetz zur Regelung von Sekundierungen im Rahmen von Einsätzen der zivilen Krisenprävention
+- **SekG-2017** Gesetz zur Regelung von Sekundierungen im Rahmen von Einsätzen der zivilen Krisenprävention
+- **SG** Gesetz über die Rechtsstellung der Soldaten
+- **SGÄndG-12** Zwölftes Gesetz zur Änderung des Soldatengesetzes
+- **SGÄndG-13** Dreizehntes Gesetz zur Änderung des Soldatengesetzes
+- **SGÄndG-4** Viertes Gesetz zur Änderung des Soldatengesetzes
+- **SGÄndG-7** Siebentes Gesetz zur Änderung des Soldatengesetzes
+- **SGB-1** Sozialgesetzbuch (SGB) Erstes Buch (I) - Allgemeiner Teil - (Artikel I des Gesetzes vom 11. Dezember 1975, BGBl. I S. 3015)
+- **SGB-10** Zehntes Buch Sozialgesetzbuch - Sozialverwaltungsverfahren und Sozialdatenschutz -
+- **SGB-10-Kap1-2** Sozialgesetzbuch - Verwaltungsverfahren -
+- **SGB-10-Kap3** Sozialgesetzbuch - Zusammenarbeit der Leistungsträger und ihre Beziehungen zu Dritten -
+- **SGB-11** Sozialgesetzbuch (SGB) - Elftes Buch (XI) - Soziale Pflegeversicherung (Artikel 1 des Gesetzes vom 26. Mai 1994, BGBl. I S. 1014)
+- **SGB-12** Sozialgesetzbuch (SGB) Zwölftes Buch (XII) - Sozialhilfe - (Artikel 1 des Gesetzes vom 27. Dezember 2003, BGBl. I S. 3022)
+- **SGB-14** Sozialgesetzbuch Vierzehntes Buch – Soziale Entschädigung – (Artikel 1 des Gesetzes vom 12. Dezember 2019, BGBl. I S. 2652)
+- **SGB-2** Sozialgesetzbuch (SGB) Zweites Buch (II) - Grundsicherung für Arbeitsuchende - (Artikel 1 des Gesetzes vom 24. Dezember 2003, BGBl. I S. 2954)
+- **SGB-3** Sozialgesetzbuch (SGB) Drittes Buch (III) - Arbeitsförderung - (Artikel 1 des Gesetzes vom 24. März 1997, BGBl. I S. 594)
+- **SGB-4** Sozialgesetzbuch (SGB) Viertes Buch (IV) - Gemeinsame Vorschriften für die Sozialversicherung - (Artikel I des Gesetzes vom 23. Dezember 1976, BGBl. I S. 3845)
+- **SGB-5** Sozialgesetzbuch (SGB) Fünftes Buch (V) - Gesetzliche Krankenversicherung - (Artikel 1 des Gesetzes v. 20. Dezember 1988, BGBl. I S. 2477)
+- **SGB-6** Sozialgesetzbuch (SGB) Sechstes Buch (VI) - Gesetzliche Rentenversicherung - (Artikel 1 des Gesetzes v. 18. Dezember 1989, BGBl. I S. 2261, 1990 I S. 1337)
+- **SGB-7** Siebtes Buch Sozialgesetzbuch - Gesetzliche Unfallversicherung - (Artikel 1 des Gesetzes vom 7. August 1996, BGBl. I S. 1254)
+- **SGB-8** Sozialgesetzbuch (SGB) - Achtes Buch (VIII) - Kinder- und Jugendhilfe - (Artikel 1 des Gesetzes v. 26. Juni 1990, BGBl. I S. 1163)
+- **SGB-9** Sozialgesetzbuch (SGB) Neuntes Buch (IX) - Rehabilitation und Teilhabe behinderter Menschen - (Artikel 1 des Gesetzes v. 19.6.2001, BGBl. I S. 1046)
+- **SGB-9-2018** Sozialgesetzbuch Neuntes Buch – Rehabilitation und Teilhabe von Menschen mit Behinderungen – (Artikel 1 des Gesetzes v. 23. Dezember 2016, BGBl. I S. 3234)
+- **SGB11ÄndG-1** Erstes Gesetz zur Änderung des Elften Buches Sozialgesetzbuch und anderer Gesetze
+- **SGB4ErgG** Gesetz zur Einordnung der Vorschriften über die Meldepflichten des Arbeitgebers in der Kranken- und Rentenversicherung sowie im Arbeitsförderungsrecht und über den Einzug des Gesamtsozialversicherungsbeitrags in das Vierte Buch Sozialgesetzbuch - Gemeinsame Vorschriften für die Sozialversicherung -
+- **SGB5ÄndG-8** Achtes Gesetz zur Änderung des Fünften Buches Sozialgesetzbuch
+- **SGB6ÄndG** Gesetz zur Änderung des Sechsten Buches Sozialgesetzbuch
+- **SGB8ÄndG-1** Erstes Gesetz zur Änderung des Achten Buches Sozialgesetzbuch
+- **SGB9uaÄndG** Sozialgesetzbuch - Neuntes Buch - (SGB IX) Rehabilitation und Teilhabe behinderter Menschen
+- **SGBAT** Sozialgesetzbuch - Allgemeiner Teil -
+- **SGBSVVs** Sozialgesetzbuch - Gemeinsame Vorschriften für die Sozialversicherung -
+- **SGFFG** Gesetz zur Förderung der Schienenwege der öffentlichen nicht bundeseigenen Eisenbahnen für den Schienengüterfernverkehr
+- **SGG** Sozialgerichtsgesetz
+- **SGGÄndG-1974** Gesetz zur Änderung des Sozialgerichtsgesetzes
+- **SGGÄndG-5** Fünftes Gesetz zur Änderung des Sozialgerichtsgesetzes
+- **SGGÄndG-6** Sechstes Gesetz zur Änderung des Sozialgerichtsgesetzes
+- **SGleiG** Gesetz zur Gleichstellung von Soldatinnen und Soldaten der Bundeswehr
+- **SHG** Gesetz zur Milderung dringender sozialer Notstände
+- **SHSG** Seehandelsschiffahrtsgesetz der Deutschen Demokratischen Republik
+- **SHStatG** Gesetz über die Durchführung von Statistiken auf dem Gebiet der Kriegsopferfürsorge
+- **SiFilmG** Gesetz über Sicherheitskinefilme
+- **SigG** Gesetz zur digitalen Signatur (Artikel 3 des Gesetzes zur Regelung der Rahmenbedingungen für Informations- und Kommunikationsdienste)
+- **SigG-2001** Gesetz über Rahmenbedingungen für elektronische Signaturen
+- **SISIIG** Gesetz zum Schengener Informationssystem der zweiten Generation
+- **SKAGEG** Gesetz zur Einführung der Selbstverwaltung auf dem Gebiet der Sozialversicherung und Angleichung des Rechts der Krankenversicherung im Land Berlin
+- **SkAufG** Gesetz über die Rechtsstellung ausländischer Streitkräfte bei vorübergehenden Aufenthalten in der Bundesrepublik Deutschland
+- **SklHG** Gesetz betreffend die Bestrafung des Sklavenraubes und des Sklavenhandels
+- **SklÜbkG** Gesetz betreffend das Übereinkommen über die Sklaverei
+- **SKPersStruktAnpG** Gesetz zur Anpassung der personellen Struktur der Streitkräfte
+- **SKWPG-1** Erstes Gesetz zur Umsetzung des Spar-, Konsolidierungs- und Wachstumsprogramms
+- **SNWG** Gesetz über die Werbung für Säuglingsanfangsnahrung und Folgenahrung
+- **SokaSiG** Gesetz zur Sicherung der Sozialkassenverfahren im Baugewerbe
+- **SokaSiG-2** Gesetz zur Sicherung der tarifvertraglichen Sozialkassenverfahren
+- **SoldGG** Gesetz über die Gleichbehandlung der Soldatinnen und Soldaten
+- **SolidarfAbfAuflG** Gesetz zur Auflösung und Abwicklung der Anstalt Solidarfonds Abfallrückführung
+- **SolingenG** Gesetz zum Schutz des Namens "Solingen"
+- **SolZG** Solidaritätszuschlaggesetz
+- **SolZG-1995** Solidaritätszuschlaggesetz 1995
+- **SorgeRNG** Gesetz zur Neuregelung des Rechts der elterlichen Sorge
+- **SorgeRÜbkAG** Gesetz zur Ausführung des Haager Übereinkommens vom 25. Oktober 1980 über die zivilrechtlichen Aspekte internationaler Kindesentführung und des Europäischen Übereinkommens vom 20. Mai 1980 über die Anerkennung und Vollstreckung von Entscheidungen über das Sorgerecht für Kinder und die Wiederherstellung des Sorgeverhältnisses (Artikel 1 des Gesetzes zur Ausführung von Sorgerechtsübereinkommen und zur Änderung des Gesetzes über die Angelegenheiten der freiwilligen Gerichtsbarkeit sowie anderer Gesetze)
+- **SorgeRÜbkAGZustÄndG** Gesetz zur Änderung von Zuständigkeiten nach dem Sorgerechtsübereinkommens-Ausführungsgesetz
+- **SortSchG-1985** Sortenschutzgesetz
+- **SoVwAbwG** Gesetz zur Abwicklung der unter Sonderverwaltung stehenden Vermögen von Kreditinstituten, Versicherungsunternehmen und Bausparkassen
+- **SozDiG** Gesetz zur Förderung eines freiwilligen sozialen Jahres
+- **SozhiEinOG** Gesetz zur Einordnung des Sozialhilferechts in das Sozialgesetzbuch
+- **SozSichAbk1985RVbgDVbgCANG** Gesetz zu dem Abkommen vom 14. November 1985 zwischen der Bundesrepublik Deutschland und Kanada über Soziale Sicherheit und der Vereinbarung zur Durchführung des Abkommens sowie zu der Vereinbarung vom 14. Mai 1987 zwischen der Regierung der Bundesrepublik Deutschland und der Regierung von Quebec über Soziale Sicherheit und der Durchführungsvereinbarung hierzu
+- **SozSichAbk1985ZusAbkCANG** Gesetz zu dem Zusatzabkommen vom 27. August 2002 zum Abkommen vom 14. November 1985 zwischen der Bundesrepublik Deutschland und Kanada über Soziale Sicherheit
+- **SozSichAbk2ErgAbkESPG** Gesetz zu dem Abkommen vom 4. Dezember 1973 zwischen der Bundesrepublik Deutschland und dem Spanischen Staat über Soziale Sicherheit und dem Ergänzungsabkommen vom 17. Dezember 1975
+- **SozSichAbkÄndAbk2ZAbkTURG** Gesetz zu dem Zusatzabkommen vom 2. November 1984 zum Abkommen vom 30. April 1964 zwischen der Bundesrepublik Deutschland und der Republik Türkei über Soziale Sicherheit und zu der Vereinbarung vom 2. November 1984 zur Durchführung des Abkommens
+- **SozSichAbkALBG** Gesetz zu dem Abkommen vom 23. September 2015 zwischen der Bundesrepublik Deutschland und der Republik Albanien über Soziale Sicherheit
+- **SozSichAbkAUSErgAbkG** Gesetz zu dem Abkommen vom 9. Februar 2007 zwischen der Bundesrepublik Deutschland und Australien über die Soziale Sicherheit von vorübergehend im Hoheitsgebiet des anderen Staates beschäftigten Personen ("Ergänzungsabkommen")
+- **SozSichAbkAUSG** Gesetz zu dem Abkommen vom 13. Dezember 2000 zwischen der Bundesrepublik Deutschland und Australien über Soziale Sicherheit
+- **SozSichAbkAUT1995G** Gesetz zu dem Abkommen vom 4. Oktober 1995 zwischen der Bundesrepublik Deutschland und der Republik Österreich über Soziale Sicherheit
+- **SozSichAbkAUTG** Gesetz zu dem Abkommen vom 22. Dezember 1966 zwischen der Bundesrepublik Deutschland und der Republik Österreich über Soziale Sicherheit und zu der Vereinbarung vom 22. Dezember 1966 zur Durchführung des Abkommens
+- **SozSichAbkBELG** Gesetz zu dem Allgemeinen Abkommen vom 7. Dezember 1957 zwischen der Bundesrepublik Deutschland und dem Königreich Belgien über Soziale Sicherheit nebst Schlußprotokoll, der Ersten, Zweiten und Dritten Zusatzvereinbarung und dem Zusatzprotokoll zu dem Abkommen
+- **SozSichAbkBGRG** Gesetz zu dem Abkommen vom 17. Dezember 1997 zwischen der Bundesrepublik Deutschland und der Republik Bulgarien über Soziale Sicherheit
+- **SozSichAbkBRAG** Gesetz zu dem Abkommen vom 3. Dezember 2009 zwischen der Bundesrepublik Deutschland und der Föderativen Republik Brasilien über Soziale Sicherheit
+- **SozSichAbkCZEG** Gesetz zu dem Abkommen vom 27. Juli 2001 zwischen der Bundesrepublik Deutschland und der Tschechischen Republik über Soziale Sicherheit
+- **SozSichAbkDVbgSWEG** Gesetz zu der Vereinbarung vom 23. Februar 1978 zwischen der Bundesrepublik Deutschland und dem Königreich Schweden zur Durchführung des Abkommens vom 27. Februar 1976 über Soziale Sicherheit
+- **SozSichAbkErgVbg2FRAG** Gesetz über die Zweite Vereinbarung zur Ergänzung des Allgemeinen Abkommens zwischen der Bundesrepublik Deutschland und Frankreich über die Soziale Sicherheit und über die Fünfte Zusatzvereinbarung über die Einbeziehung des Landes Berlin in das Allgemeine Abkommen nebst Briefen
+- **SozSichAbkFIN1997G** Gesetz zu dem Abkommen vom 28. April 1997 zwischen der Bundesrepublik Deutschland und der Republik Finnland über Soziale Sicherheit
+- **SozSichAbkFING** Gesetz zu dem Abkommen vom 23. April 1979 zwischen der Bundesrepublik Deutschland und der Republik Finnland über Soziale Sicherheit
+- **SozSichAbkG-MDA** Gesetz zu dem Abkommen vom 12. Januar 2017 zwischen der Bundesrepublik Deutschland und der Republik Moldau über Soziale Sicherheit
+- **SozSichAbkG-PHL** Gesetz zu dem Abkommen vom 19. September 2014 zwischen der Bundesrepublik Deutschland und der Republik der Philippinen über Soziale Sicherheit
+- **SozSichAbkG-UKR** Gesetz zu dem Abkommen vom 7. November 2018 zwischen der Bundesrepublik Deutschland und der Ukraine über Soziale Sicherheit
+- **SozSichAbkGBRDVbgG** Gesetz zu der Vereinbarung vom 10. Dezember 1964 zur Durchführung des Abkommens vom 20. April 1960 zwischen der Bundesrepublik Deutschland und dem Vereinigten Königreich Großbritannien und Nordirland über Soziale Sicherheit
+- **SozSichAbkGRCG** Gesetz zu dem Abkommen vom 25. April 1961 zwischen der Bundesrepublik Deutschland und dem Königreich Griechenland über Soziale Sicherheit
+- **SozSichAbkHRVG** Gesetz zu dem Abkommen vom 24. November 1997 zwischen der Bundesrepublik Deutschland und der Republik Kroatien über Soziale Sicherheit
+- **SozSichAbkHUNG** Gesetz zu dem Abkommen vom 2. Mai 1998 zwischen der Bundesrepublik Deutschland und der Republik Ungarn über Soziale Sicherheit
+- **SozSichAbkINDG** Gesetz zu dem Abkommen vom 12. Oktober 2011 zwischen der Bundesrepublik Deutschland und der Republik Indien über Soziale Sicherheit
+- **SozSichAbkISRÄndAbkG** Gesetz zu dem Abkommen vom 7. Januar 1986 zur Änderung des Abkommens vom 17. Dezember 1973 zwischen der Bundesrepublik Deutschland und dem Staat Israel über Soziale Sicherheit
+- **SozSichAbkISRG** Gesetz zu dem Abkommen vom 17. Dezember 1973 zwischen der Bundesrepublik Deutschland und dem Staat Israel über Soziale Sicherheit
+- **SozSichAbkJPNG** Gesetz zu dem Abkommen vom 20. April 1998 zwischen der Bundesrepublik Deutschland und Japan über Soziale Sicherheit
+- **SozSichAbkKORG** Gesetz zu dem Abkommen vom 10. März 2000 zwischen der Bundesrepublik Deutschland und der Republik Korea über Soziale Sicherheit
+- **SozSichAbkMARG** Gesetz zu dem Abkommen vom 25. März 1981 zwischen der Bundesrepublik Deutschland und dem Königreich Marokko über Soziale Sicherheit und zu der Vereinbarung vom 19. April 1984 zur Durchführung dieses Abkommens
+- **SozSichAbkMKDG** Gesetz zu dem Abkommen vom 8. Juli 2003 zwischen der Regierung der Bundesrepublik Deutschland und der mazedonischen Regierung über Soziale Sicherheit
+- **SozSichAbkNLDG** Gesetz zu dem Abkommen vom 18. April 2001 zwischen der Bundesrepublik Deutschland und dem Königreich der Niederlande über Soziale Sicherheit
+- **SozSichAbkPOLDVVbgG** Gesetz zu der Vereinbarung vom 19. Dezember 1995 zur Durchführung des Abkommens vom 8. Dezember 1990 zwischen der Bundesrepublik Deutschland und der Republik Polen über Soziale Sicherheit
+- **SozSichAbkPOLG** Gesetz zu dem Abkommen vom 8. Dezember 1990 zwischen der Bundesrepublik Deutschland und der Republik Polen über Soziale Sicherheit
+- **SozSichAbkPRTG** Gesetz zu dem Abkommen vom 6. November 1964 zwischen der Bundesrepublik Deutschland und der Portugiesischen Republik über Soziale Sicherheit
+- **SozSichAbkROMG** Gesetz zu dem Abkommen vom 8. April 2005 zwischen der Bundesrepublik Deutschland und Rumänien über Soziale Sicherheit
+- **SozSichAbkSVKG** Gesetz zu dem Abkommen vom 12. September 2002 zwischen der Bundesrepublik Deutschland und der Slowakischen Republik über Soziale Sicherheit
+- **SozSichAbkSVNG** Gesetz zu dem Abkommen vom 24. September 1997 zwischen der Bundesrepublik Deutschland und der Republik Slowenien über Soziale Sicherheit
+- **SozSichAbkSWEG** Gesetz zu dem Abkommen vom 27. Februar 1976 zwischen der Bundesrepublik Deutschland und dem Königreich Schweden über Soziale Sicherheit
+- **SozSichAbkTUNG** Gesetz zu dem Abkommen vom 16. April 1984 zwischen der Bundesrepublik Deutschland und der Tunesischen Republik über Soziale Sicherheit, dem Zusatzprotokoll zu diesem Abkommen und der Vereinbarung zur Durchführung des Abkommens
+- **SozSichAbkTURG** Gesetz zu dem Abkommen vom 30. April 1964 zwischen der Bundesrepublik Deutschland und der Republik Türkei über Soziale Sicherheit
+- **SozSichAbkUmsG** Gesetz zur Umsetzung von Abkommen über Soziale Sicherheit
+- **SozSichAbkURYG** Gesetz zu dem Abkommen vom 8. April 2013 zwischen der Bundesrepublik Deutschland und der Republik Östlich des Uruguay über Soziale Sicherheit
+- **SozSichAbkYUGG** Gesetz zu dem Abkommen vom 12. Oktober 1968 zwischen der Bundesrepublik Deutschland und der Sozialistischen Föderativen Republik Jugoslawien über Soziale Sicherheit
+- **SozSichAbkZAbk2-ZVbgCHEG** Gesetz zu dem Zweiten Zusatzabkommen vom 2. März 1989 zum Abkommen vom 25. Februar 1964 zwischen der Bundesrepublik Deutschland und der Schweizerischen Eidgenossenschaft über Soziale Sicherheit und der Zusatzvereinbarung vom 2. März 1989 zur Vereinbarung vom 25. August 1978 zur Durchführung des Abkommens
+- **SozSichAbkZAbk3-DVbgZVbgAUT3G** Gesetz zu den Zusatzvereinbarungen vom 29. August 1980 zum Abkommen vom 22. Dezember 1966 zwischen der Bundesrepublik Deutschland und der Republik Österreich über Soziale Sicherheit und zu der Vereinbarung zur Durchführung dieses Abkommens
+- **SozSichAbkZAbkAUTG** Gesetz zu dem Zusatzabkommen vom 10. April 1969 zum Abkommen vom 22. Dezember 1966 zwischen der Bundesrepublik Deutschland und der Republik Österreich über Soziale Sicherheit und zu der Zusatzvereinbarung vom 10. April 1969 zu der Vereinbarung vom 22. Dezember 1966 zur Durchführung des Abkommens zwischen der Bundesrepublik Deutschland und der Republik Österreich über Soziale Sicherheit
+- **SozSichAbkZusAbkISRG** Gesetz zu dem Zusatzabkommen vom 12. Februar 1995 zum Abkommen vom 17. Dezember 1973 zwischen der Bundesrepublik Deutschland und dem Staat Israel über Soziale Sicherheit
+- **SozSichAbkZusAbkZVbg-2USAG** Gesetz zu dem Zweiten Zusatzabkommen vom 6. März 1995 zum Abkommen vom 7. Januar 1976 zwischen der Bundesrepublik Deutschland und den Vereinigten Staaten von Amerika über Soziale Sicherheit und zu der Zweiten Zusatzvereinbarung vom 6. März 1995 zur Vereinbarung vom 21. Juni 1978 zur Durchführung des Abkommens
+- **SozSichÄndAbkTURG** Gesetz zu dem Abkommen vom 28. Mai 1969 zwischen der Bundesrepublik Deutschland und der Republik Türkei zur Änderung des Abkommens vom 30. April 1964 über Soziale Sicherheit
+- **SozSichEUG** Gesetz zur Koordinierung der Systeme der sozialen Sicherheit in Europa
+- **SozSichRheinSchiffÜbkVwVbgG** Gesetz zu der Verwaltungsvereinbarung vom 26. November 1987 zur Durchführung des Übereinkommens vom 30. November 1979 über die Soziale Sicherheit der Rheinschiffer
+- **SozSichVbgCANG** Gesetz zur Vereinbarung vom 20. April 2010 zwischen der Regierung der Bundesrepublik Deutschland und der Regierung von Quebec über Soziale Sicherheit
+- **SozSichWArbnErmG** Gesetz über die Ermächtigung zum Erlaß von Rechtsverordnungen im Rahmen der Verordnung (EWG) Nr. 1408/71 des Rates vom 14. Juni 1971 zur Anwendung der Systeme der sozialen Sicherheit auf Arbeitnehmer und deren Familien, die innerhalb der Gemeinschaft zu- und abwandern, und der Verordnung (EWG) Nr. 574/72 des Rates vom 21. März 1972 über die Durchführung der Verordnung (EWG) Nr. 1408/71
+- **SoZuwG** Gesetz über die Gewährung einer jährlichen Sonderzuwendung
+- **SozVersG** Gesetz über die Sozialversicherung
+- **SozZuschlG** Gesetz zur Zahlung eines Sozialzuschlags zu Renten im Beitrittsgebiet (Artikel 40 des Gesetzes zur Herstellung der Rechtseinheit in der gesetzlichen Renten- und Unfallversicherung)
+- **SparkGiroVerbG** Gesetz über den Deutschen Sparkassen- und Giroverband
+- **SparkSOG** Gesetz über den Status und die Organisation der Sparkassen
+- **SparPG** Spar-Prämiengesetz
+- **SparSichSaarG** Gesetz zur Sicherung von Ersparnissen im Saarland
+- **SprAuG** Gesetz über Sprecherausschüsse der leitenden Angestellten
+- **SprengG-1976** Gesetz über explosionsgefährliche Stoffe
+- **SprengMarkÜbkG** Gesetz zu dem Übereinkommen vom 1. März 1991 über die Markierung von Plastiksprengstoffen zum Zweck des Aufspürens
+- **SpruchG** Gesetz über das gesellschaftsrechtliche Spruchverfahren
+- **SpTrUG** Gesetz über die Spaltung der von der Treuhandanstalt verwalteten Unternehmen
+- **SpurVerkErprG** Gesetz über den Bau und den Betrieb von Versuchsanlagen zur Erprobung von Techniken für den spurgeführten Verkehr
+- **StaatenlMindÜbkAG** Ausführungsgesetz zu dem Übereinkommen vom 30. August 1961 zur Verminderung der Staatenlosigkeit und zu dem Übereinkommen vom 13. September 1973 zur Verringerung der Fälle von Staatenlosigkeit
+- **StaatenlÜbkG** Gesetz zu dem Übereinkommen vom 28. September 1954 über die Rechtsstellung der Staatenlosen
+- **StaatsSchRZugG** Gesetz zur allgemeinen Einführung eines zweiten Rechtszuges in Staatsschutz-Strafsachen
+- **StabG** Gesetz zur Förderung der Stabilität und des Wachstums der Wirtschaft
+- **StabiRatG** Gesetz zur Errichtung eines Stabilitätsrates und zur Vermeidung von Haushaltsnotlagen
+- **StabMechG** Gesetz zur Übernahme von Gewährleistungen im Rahmen eines europäischen Stabilisierungsmechanismus
+- **StÄndG-1961** Gesetz zur Änderung des Einkommensteuergesetzes, des Körperschaftsteuergesetzes, des Gewerbesteuergesetzes, des Bewertungsgesetzes, des Vermögensteuergesetzes, des Steuersäumnisgesetzes, der Reichsabgabenordnung, des Steueranpassungsgesetzes, des Gesetzes zur Förderung der Wirtschaft von Berlin (West) und andere Gesetze
+- **StÄndG-1966** Zweites Gesetz zur Überleitung der Haushaltswirtschaft des Bundes in eine mehrjährige Finanzplanung
+- **StÄndG-1969** Gesetz über die Gewährung von Investitionszulagen und zur Änderung steuerrechtlicher und prämienrechtlicher Vorschriften
+- **StÄndG-1975** Gesetz zur Änderung des Einkommensteuergesetzes und des Investitionszulagengesetzes
+- **StäVDDRVorRG** Gesetz über die Gewährung von Erleichterungen, Vorrechten und Befreiungen an die ständige Vertretung der Deutschen Demokratischen Republik
+- **StandAG** Gesetz zur Suche und Auswahl eines Standortes für ein Endlager für Wärme entwickelnde radioaktive Abfälle
+- **StandAG-2017** Gesetz zur Suche und Auswahl eines Standortes für ein Endlager für hochradioaktive Abfälle
+- **StandOG** Gesetz zur Verbesserung der steuerlichen Bedingungen zur Sicherung des Wirtschaftsstandorts Deutschland im Europäischen Binnenmarkt
+- **StAngRegG** Gesetz zur Regelung von Fragen der Staatsangehörigkeit
+- **StAngRegG-2** Zweites Gesetz zur Regelung von Fragen der Staatsangehörigkeit
+- **StAngRegV** Verordnung zur Regelung von Staatsangehörigkeitsfragen
+- **StatRegG** Gesetz über den Aufbau und die Führung eines Statistikregisters
+- **StBAG** Steuerbeamten-Ausbildungsgesetz
+- **StBereinG-1985** Steuerbereinigungsgesetz 1985
+- **StBerG** Steuerberatungsgesetz
+- **StBerGÄndG-3** Drittes Gesetz zur Änderung des Steuerberatungsgesetzes
+- **SteinKAGSaarG** Gesetz über die Einbringung der Steinkohlenbergwerke im Saarland in eine Aktiengesellschaft
+- **SteinkohleFinG** Gesetz zur Finanzierung der Beendigung des subventionierten Steinkohlenbergbaus zum Jahr 2018
+- **SterilEntschAufhG** Gesetz zur Aufhebung von Sterilisationsentscheidungen der ehemaligen Erbgesundheitsgerichte (Artikel 2 des Gesetzes zur Aufhebung nationalsozialistischer Unrechtsurteile in der Strafrechtspflege und von Sterilisationsentscheidungen der ehemaligen Erbgesundheitsgerichte)
+- **StGB** Strafgesetzbuch
+- **StGBEG** Einführungsgesetz zum Strafgesetzbuch
+- **StGBuaÄndG** Gesetz zur Änderung des Strafgesetzbuches, der Strafprozeßordnung, des Gerichtsverfassungsgesetzes, der Bundesrechtsanwaltsordnung und des Strafvollzugsgesetzes
+- **StGBuaÄndG-1989** Gesetz zur Änderung des Strafgesetzbuches, der Strafprozeßordnung und des Versammlungsgesetzes und zur Einführung einer Kronzeugenregelung bei terroristischen Straftaten
+- **StGrenzVtrAUT1989G** Gesetz zu dem Vertrag vom 3. April 1989 zwischen der Bundesrepublik Deutschland und der Republik Österreich über den Verlauf der gemeinsamen Staatsgrenze in der Sektion III des Grenzabschnittes "Scheibelberg-Bodensee" sowie in einem Teil des Grenzabschnittes "Dreieckmark-Dandlbachmündung" und des Grenzabschnittes "Saalach-Scheibelberg"
+- **StGrenzVtrAUTG** Gesetz zu dem Vertrag vom 20. April 1977 zwischen der Bundesrepublik Deutschland und der Republik Österreich über den Verlauf der gemeinsamen Staatsgrenze im Grenzabschnitt "Dreieckmark-Dandlbachmündung" und in einem Teil des Grenzabschnittes "Scheibelberg-Bodensee" sowie über Befugnisse der Grenzkommission
+- **StGrenzVtrLUXG** Gesetz zu dem Vertrag vom 19. Dezember 1984 zwischen der Bundesrepublik Deutschland und dem Großherzogtum Luxemburg über den Verlauf der gemeinsamen Staatsgrenze
+- **StiftBTG** Gesetz über die Bildung und Tätigkeit von Stiftungen
+- **StillG-1991** Gesetz über die Förderung einer einjährigen Flächenstillegung im Wirtschaftsjahr 1991/92
+- **StImmÜbkG** Gesetz zum Europäischen Übereinkommen vom 16. Mai 1972 über Staatenimmunität
+- **StIndInvZulG** Gesetz über eine Investitionszulage für Investitionen in der Eisen- und Stahlindustrie
+- **StipG** Gesetz zur Schaffung eines nationalen Stipendienprogramms
+- **StPÄG** Gesetz zur Änderung der Strafprozeßordnung und des Gerichtsverfassungsgesetzes
+- **StPO** Strafprozeßordnung
+- **StPOÄndG-1978** Gesetz zur Änderung der Strafprozeßordnung
+- **StPOEG** Einführungsgesetz zur Strafprozeßordnung
+- **StraBEG** Gesetz über die strafbefreiende Erklärung
+- **StrÄndG-15** Fünfzehntes Strafrechtsänderungsgesetz
+- **StrÄndG-16** Sechzehntes Strafrechtsänderungsgesetz
+- **StrÄndG-20** Zwanzigstes Strafrechtsänderungsgesetz
+- **StrÄndG-30** Dreißigstes Strafrechtsänderungsgesetz - Verjährung von Sexualstraftaten an Kindern und Jugendlichen
+- **StrÄndG-4** Gesetz über den Schutz der Truppen des Nordatlantikpaktes durch das Straf- und Ordnungswidrigkeitenrecht
+- **StrÄndG-8** Achtes Strafrechtsänderungsgesetz
+- **StrÄndG-9** Neuntes Strafrechtsänderungsgesetz
+- **StrbEG** Gesetz über die strafbefreiende Erklärung von Einkünften aus Kapitalvermögen und von Kapitalvermögen
+- **StrBNÜbkÄndProtG** Gesetz zu dem Protokoll vom 22. März 2000 zur Änderung des Übereinkommens vom 9. Februar 1994 über die Erhebung von Gebühren für die Benutzung bestimmter Straßen mit schweren Nutzfahrzeugen
+- **StrBNÜbkG** Gesetz zu dem Übereinkommen vom 9. Februar 1994 über die Erhebung von Gebühren für die Benutzung bestimmter Straßen mit schweren Nutzfahrzeugen
+- **StrBNÜbkSEG** Gesetz zu dem Protokoll vom 18. September 1997 über den Beitritt des Königreichs Schweden zu dem Übereinkommen vom 9. Februar 1994 über die Erhebung von Gebühren für die Benutzung bestimmter Straßen mit schweren Nutzfahrzeugen sowie zu dem Zusatzübereinkommen vom 18. September 1997 zu dem vorgenannten Übereinkommen
+- **StrEG** Gesetz über die Entschädigung für Strafverfolgungsmaßnahmen
+- **StreitkrAVbgInkrG** Gesetz über die Inkraftsetzung von Vereinbarungen betreffend den befristeten Aufenthalt von Streitkräften der Französischen Republik, der Union der Sozialistischen Sowjetrepubliken, des Vereinigten Königreichs Großbritannien und Nordirland und der Vereinigten Staaten von Amerika in Berlin und von sowjetischen Streitkräften auf dem in Artikel 3 des Einigungsvertrages genannten Gebiet nach Herstellung der Deutschen Einheit
+- **StreitkrAVtrSUNG** Gesetz zu dem Vertrag vom 12. Oktober 1990 zwischen der Bundesrepublik Deutschland und der Union der Sozialistischen Sowjetrepubliken über die Bedingungen des befristeten Aufenthalts und die Modalitäten des planmäßigen Abzugs der sowjetischen Truppen aus dem Gebiet der Bundesrepublik Deutschland
+- **StreitkrNotWG** Gesetz zu den Notenwechseln vom 25. September 1990 und vom 23. September 1991 über die Rechtsstellung der in Deutschland stationierten verbündeten Streitkräfte und zu dem Übereinkommen vom 25. September 1990 zur Regelung bestimmter Fragen in bezug auf Berlin
+- **StrErgÄndG-6** Gesetz zur Änderung und Ergänzung des Strafgesetzbuches, der Strafprozeßordnung, des Einführungsgesetzes zum Strafgesetzbuch und zur Strafprozeßordnung, des Gesetzes zur Bekämpfung von Ordnungswidrigkeiten, des Strafregistergesetzes, des Strafvollzugsgesetzes und des Paßgesetzes
+- **StrFinG** Straßenbaufinanzierungsgesetz
+- **StrFrhG-1968** Gesetz über Straffreiheit
+- **StrFrhG-1970** Gesetz über Straffreiheit
+- **StrKrAufenthVtrG** Gesetz, betreffend den Vertrag vom 23. Oktober 1954 über den Aufenthalt ausländischer Streitkräfte in der Bundesrepublik Deutschland
+- **StrKrPersStruktG** Gesetz zur Verbesserung der Personalstruktur in den Streitkräften
+- **StrlSchG** Gesetz zum Schutz vor der schädlichen Wirkung ionisierender Strahlung
+- **StromEsG** Gesetz über die Einspeisung von Strom aus erneuerbaren Energien in das öffentliche Netz
+- **StromStG** Stromsteuergesetz
+- **StrRehaG** Gesetz über die Rehabilitierung und Entschädigung von Opfern rechtsstaatswidriger Strafverfolgungsmaßnahmen im Beitrittsgebiet
+- **StrRehaHomG** Gesetz zur strafrechtlichen Rehabilitierung der nach dem 8. Mai 1945 wegen einvernehmlicher homosexueller Handlungen verurteilten Personen
+- **StrRG-1** Erstes Gesetz zur Reform des Strafrechts
+- **StrRG-3** Drittes Gesetz zur Reform des Strafrechts
+- **StrRG-4** Viertes Gesetz zur Reform des Strafrechts
+- **StrRG-5** Fünftes Gesetz zur Reform des Strafrechts
+- **StrRG-6** Sechstes Gesetz zur Reform des Strafrechts
+- **StRSaarEG** Gesetz über die Einführung des deutschen Rechts auf dem Gebiete der Steuern, Zölle und Finanzmonopole im Saarland
+- **StruktHiGAufhDEFASG** Gesetz zur Aufhebung des Strukturhilfegesetzes und zur Aufstockung des Fonds "Deutsche Einheit"
+- **StrVerjFrG** Gesetz über die Berechnung strafrechtlicher Verjährungsfristen
+- **StrVerjFrG-2** Zweites Gesetz zur Berechnung strafrechtlicher Verjährungsfristen
+- **StrVG** Gesetz zum vorsorgenden Schutz der Bevölkerung gegen Strahlenbelastung
+- **StrZusGubenAbkPOLG** Gesetz zu dem Abkommen vom 20. März 1995 zwischen der Bundesrepublik Deutschland und der Republik Polen über den Zusammenschluß der deutschen Bundesstraße B 97 und der polnischen Landesstraße 274 sowie über den Bau einer Grenzbrücke im Raum Guben und Gubinek
+- **StStatG** Gesetz über Steuerstatistiken
+- **StStatG-1995** Gesetz über Steuerstatistiken
+- **StSWEAbkG** Gesetz zu dem Abkommen vom 14. Juli 1992 zwischen der Bundesrepublik Deutschland und dem Königreich Schweden zur Vermeidung der Doppelbesteuerung bei den Steuern vom Einkommen und vom Vermögen sowie bei den Erbschaft- und Schenkungsteuern und zur Leistung gegenseitigen Beistands bei den Steuern
+- **StUG** Gesetz über die Unterlagen des Staatssicherheitsdienstes der ehemaligen Deutschen Demokratischen Republik
+- **StVÄG-1979** Strafverfahrensänderungsgesetz 1979
+- **StVÄG-1987** Strafverfahrensänderungsgesetz 1987
+- **StVG** Straßenverkehrsgesetz
+- **StVGÄndG-1982** Gesetz zur Änderung des Straßenverkehrsgesetzes
+- **StVGÄndG-1987** Gesetz zur Änderung des Straßenverkehrsgesetzes
+- **StVGHBetrÄndV** Gesetz zur Änderung der Haftungshöchstbeträge nach dem Straßenverkehrsgesetz
+- **StVollzG** Gesetz über den Vollzug der Freiheitsstrafe und der freiheitsentziehenden Maßregeln der Besserung und Sicherung
+- **StVRG-1** Erstes Gesetz zur Reform des Strafverfahrensrechts
+- **StVUnfStatG-1990** Gesetz über die Statistik der Straßenverkehrsunfälle
+- **StZG** Gesetz zur Sicherstellung des Embryonenschutzes im Zusammenhang mit Einfuhr und Verwendung menschlicher embryonaler Stammzellen
+- **SubvG** Gesetz gegen mißbräuchliche Inanspruchnahme von Subventionen
+- **SüdumfStG** Gesetz über den Bau der "Südumfahrung Stendal" der Eisenbahnstrecke Berlin-Oebisfelde
+- **SÜG** Gesetz über die Voraussetzungen und das Verfahren von Sicherheitsüberprüfungen des Bundes und den Schutz von Verschlusssachen
+- **SüßstG-1939** Süßstoffgesetz
+- **SUG** Gesetz zur Verbesserung der Sicherheit der Seefahrt durch die Untersuchung von Seeunfällen und anderen Vorkommnissen
+- **SVAbkCHNG** Gesetz zu dem Abkommen vom 12. Juli 2001 zwischen der Bundesrepublik Deutschland und der Volksrepublik China über Sozialversicherung
+- **SVAbkING** Gesetz zu dem Abkommen vom 8. Oktober 2008 zwischen der Bundesrepublik Deutschland und der Republik Indien über Sozialversicherung
+- **SVAbkPOLG** Gesetz zu dem Abkommen vom 25. April 1973 zwischen der Bundesrepublik Deutschland und der Volksrepublik Polen über die Sozialversicherung von Arbeitnehmern, die in das Gebiet des anderen Staates vorübergehend entsandt werden
+- **SVÄndG** Gesetz zur Änderung sozialrechtlicher Vorschriften
+- **SVAnpG** Gesetz über die Anpassung von Leistungen der Sozialversicherung an das veränderte Lohn- und Preisgefüge und über ihre finanzielle Sicherstellung
+- **SVBezGrG-2007** Gesetz über maßgebende Rechengrößen der Sozialversicherung für 2007
+- **SVDDRAbwG** Gesetz über die Errichtung der "Staatlichen Versicherung der DDR in Abwicklung" (Anlage I Kap. IV Sachgebiet B Abschn. II Nr. 45 EinigVtr)
+- **SVDDRAuflG** Gesetz über die Auflösung der Staatlichen Versicherung der Deutschen Demokratischen Republik in Abwicklung
+- **SVFAG** Gesetz über Fremdrenten der Sozialversicherung an Berechtigte im Bundesgebiet und im Land Berlin, über Leistungen der Sozialversicherung an Berechtigte im Ausland sowie über freiwillige Sozialversicherung
+- **SVG** Gesetz über die Versorgung für die ehemaligen Soldaten der Bundeswehr und ihre Hinterbliebenen
+- **SVGÄndG-7** Siebentes Gesetz zur Änderung des Soldatenversorgungsgesetzes
+- **SVLFGG** Gesetz zur Errichtung der Sozialversicherung für Landwirtschaft, Forsten und Gartenbau
+- **SVLFÜG** Gesetz zu Übergangsregelungen zur Errichtung der Sozialversicherung für Landwirtschaft, Forsten und Gartenbau
+- **SVOrgSaarG** Gesetz zur Neuordnung der Sozialversicherungsträger im Saarland
+- **SVSaarAnglG** Gesetz zur Angleichung des Sozialversicherungsrechts im Saarland an das im übrigen Bundesgebiet geltende Recht
+- **SVStFreigG** Gesetz über die Freigabe der stillgelegten Mittel aus der Steuer für den Selbstverbrauch sowie über die Aufhebung der Stillegungspflicht für künftig aufkommende Beträge
+- **SVÜbkITAG** Gesetz über das Abkommen vom 5. Mai 1953 zwischen der Bundesrepublik Deutschland und der Italienischen Republik über Sozialversicherung nebst Schlußprotokoll und Zusatzvereinbarung
+- **SVVtrYUGVtrG** Gesetz zu dem Vertrag vom 10. März 1956 zwischen der Bundesrepublik Deutschland und der Föderativen Volksrepublik Jugoslawien über die Regelung gewisser Forderungen aus der Sozialversicherung
+- **SVwAdVerlG** Gesetz zur Verlängerung der Amtsdauer der Organmitglieder in der sozialen Selbstverwaltung
+- **SVwGÄndG-8** Gesetz zur Weiterentwicklung des Selbstverwaltungsrechts und zur Vereinfachung des Wahlverfahrens
+- **SZAG** Gesetz zur innerstaatlichen Aufteilung von Sanktionszahlungen zur Sicherstellung der Haushaltsdisziplin in der Europäischen Union
+- **TabakerzG** Gesetz über Tabakerzeugnisse und verwandte Erzeugnisse
+- **TabStG-1993** Tabaksteuergesetz
+- **TabStG-2009** Tabaksteuergesetz
+- **TAufhG** Gesetz zur Aufhebung der Tarife im Güterverkehr
+- **TDDSG** Gesetz über den Datenschutz bei Telediensten
+- **TDG** Gesetz über die Nutzung von Telediensten
+- **TechArbmG** Gesetz über technische Arbeitsmittel
+- **TEHG** Gesetz über den Handel mit Berechtigungen zur Emission von Treibhausgasen
+- **TEHG-2011** Gesetz über den Handel mit Berechtigungen zur Emission von Treibhausgasen
+- **TerrBekGeBefrVerlG** Gesetz zur Verlängerung der Befristung von Vorschriften nach den Terrorismusbekämpfungsgesetzen
+- **TerrorBekämpfG** Gesetz zur Bekämpfung des internationalen Terrorismus
+- **TestG** Gesetz über die Errichtung von Testamenten und Erbverträgen
+- **TestVerwahrG-WB** Gesetz Nr. 213 über die amtliche Verwahrung von Testamenten und Erbverträgen
+- **TextilKennzG** Textilkennzeichnungsgesetz
+- **TextilKennzG-2016** Textilkennzeichnungsgesetz
+- **TFG** Gesetz zur Regelung des Transfusionswesens
+- **THAKredG** Gesetz zur Regelung der Aufnahme von Krediten durch die Treuhandanstalt
+- **TherapAustÜbkG** Gesetz zu dem Europäischen Übereinkommen vom 15. Dezember 1958 über den Austausch therapeutischer Substanzen menschlichen Ursprungs
+- **ThUG** Gesetz zur Therapierung und Unterbringung psychisch gestörter Gewalttäter
+- **THW-HelfRG** Gesetz über das Technische Hilfswerk
+- **TierGesG** Gesetz zur Vorbeugung vor und Bekämpfung von Tierseuchen
+- **TierKBG-1975** Gesetz über die Beseitigung von Tierkörpern, Tierkörperteilen und tierischen Erzeugnissen
+- **TierNebG** Tierische Nebenprodukte-Beseitigungsgesetz
+- **TierSchG** Tierschutzgesetz
+- **TierSchTÜbkG** Gesetz zu dem Europäischen Übereinkommen vom 13. Dezember 1968 über den Schutz von Tieren beim internationalen Transport
+- **TierZG-1989** Tierzuchtgesetz
+- **TierZG-2006** Tierzuchtgesetz
+- **TierZG-2019** Tierzuchtgesetz
+- **TIRÜbk1975G** Gesetz zu dem Zollübereinkommen vom 14. November 1975 über den internationalen Warentransport mit Carnets TIR (TIR-Übereinkommen 19/5)
+- **TKabelVtrAG** Gesetz zur Ausführung des internationalen Vertrages zum Schutze der unterseeischen Telegraphenkabel vom 14. März 1884
+- **TKG** Telekommunikationsgesetz
+- **TKG-2004** Telekommunikationsgesetz
+- **TMG** Telemediengesetz
+- **TonTrÜbkG** Gesetz zu dem Übereinkommen vom 29. Oktober 1971 zum Schutz der Hersteller von Tonträgern gegen die unerlaubte Vervielfältigung ihrer Tonträger
+- **TPG** Gesetz über die Spende, Entnahme und Übertragung von Organen und Geweben
+- **TransparenzG** Gesetz zur Transparenz über die Kosten der Stilllegung und des Rückbaus der Kernkraftwerke sowie der Verpackung radioaktiver Abfälle
+- **TranspRLG** Gesetz zur Umsetzung der Richtlinie 2000/52/EG der Kommission vom 26. Juli 2000 zur Änderung der Richtlinie 80/723/EWG über die Transparenz der finanziellen Beziehungen zwischen den Mitgliedstaaten und den öffentlichen Unternehmen
+- **TreuhAbschlG** Gesetz zur abschließenden Erfüllung der verbliebenen Aufgaben der Treuhandanstalt
+- **TreuhG** Gesetz zur Privatisierung und Reorganisation des volkseigenen Vermögens
+- **TrVerjG** Gesetz zur Regelung der Verjährung von Ansprüchen wegen unberechtigter oder rechtswidriger Erlangung von Gegenwerten aus Transferrubelgeschäften
+- **TrZG-1962** Truppenzollgesetz 1962 Gesetz zur Ausführung der Zoll- und steuerrechtlichen Bestimmungen des Abkommens zwischen den Parteien des Nordatlantikvertrags vom 19. Juni 1951 über die Rechtsstellung ihrer Truppen (NATO-Truppenstatut) und des Zusatzabkommens vom 3. August 1959 zu diesem Abkommen hinsichtlich der in der Bundesrepublik Deutschland stationierten ausländischen Truppen
+- **TrZollG** Gesetz zur Ausführung der zoll- und steuerrechtlichen Bestimmungen des NATO-Truppenstatuts, des Zusatzabkommens zum NATO-Truppenstatut hinsichtlich der in der Bundesrepublik Deutschland stationierten ausländischen Streitkräfte und des Protokolls und der Abkommen betreffend die in der Bundesrepublik Deutschland errichteten internationalen militärischen Hauptquartiere
+- **TSeeBergbG** Gesetz zur vorläufigen Regelung des Tiefseebergbaus
+- **TSG** Gesetz über die Änderung der Vornamen und die Feststellung der Geschlechtszugehörigkeit in besonderen Fällen
+- **TVG** Tarifvertragsgesetz
+- **TVÜG** Gesetz zur Überführung der Testamentsverzeichnisse und der Hauptkartei beim Amtsgericht Schöneberg in Berlin in das Zentrale Testamentsregister der Bundesnotarkammer
+- **TWG** Telegraphenwegegesetz
+- **TzBfG** Gesetz über Teilzeitarbeit und befristete Arbeitsverträge
+- **TzWrG** Gesetz über die Veräußerung von Teilzeitnutzungsrechten an Wohngebäuden
+- **UÄndG** Gesetz zur Änderung unterhaltsrechtlicher, verfahrensrechtlicher und anderer Vorschriften
+- **UAG** Gesetz zur Ausführung der Verordnung (EG) Nr. 1221/2009 des Europäischen Parlaments und des Rates vom 25. November 2009 über die freiwillige Teilnahme von Organisationen an einem Gemeinschaftssystem für Umweltmanagement und Umweltbetriebsprüfung und zur Aufhebung der Verordnung (EG) Nr. 761/2001, sowie der Beschlüsse der Kommission 2001/681EG und 2006/193/EG
+- **UAGAnwG** Gesetz zur Anwendung des Umweltauditgesetzes und seiner Rechtsverordnungen auf die Verordnung (EG) Nr. 761/2001 des Europäischen Parlaments und des Rates vom 19. März 2001 über die freiwillige Beteiligung von Organisationen an einem Gemeinschaftssystem für das Umweltmanagement und die Umweltbetriebsprüfung
+- **UBAG** Gesetz über die Errichtung eines Umweltbundesamtes
+- **UBG** Gesetz über die Unterhaltsbeihilfe für Angehörige von Kriegsgefangenen
+- **UBGG** Gesetz über Unternehmensbeteiligungsgesellschaften
+- **UdGNG** Gesetz zur Neuregelung des Rechts des Urkundsbeamten der Geschäftsstelle
+- **ÜAG** Gesetz zur Ausführung des Übereinkommens vom 21. März 1983 über die Überstellung verurteilter Personen, des Zusatzprotokolls vom 18. Dezember 1997 und des Schengener Durchführungsübereinkommens
+- **ÜbkBernAG** Gesetz betreffend die Ausführung der am 9. September 1886 zu Bern abgeschlossenen Übereinkunft wegen Bildung eines internationalen Verbandes zum Schutz von Werken der Literatur und Kunst
+- **ÜblG-1** Erstes Gesetz zur Überleitung von Lasten und Deckungsmitteln auf den Bund
+- **ÜblG-2** Zweites Gesetz zur Überleitung von Lasten und Deckungsmitteln auf den Bund
+- **ÜblG-3** Gesetz über die Stellung des Landes Berlin im Finanzsystem des Bundes
+- **ÜblG-4** Gesetz zur Regelung finanzieller Beziehungen zwischen dem Bund und den Ländern
+- **ÜblG-5** Gesetz zur Überleitung von Lasten und Deckungsmitteln vom Saarland auf den Bund
+- **ÜblG-6** Gesetz zur Überleitung von Bundesrecht nach Berlin (West)
+- **ÜFischKKonvG** Gesetz über den Beitritt der Bundesrepublik Deutschland zur Konvention vom 5. April 1946 der Internationalen Überfischungskonferenz
+- **UErgG** Gesetz über die Ergänzung von Vorschriften des Umstellungsrechts und über die Ausstattung der Berliner Altbanken mit Ausgleichsforderungen
+- **UErgG-2** Gesetz über die Ergänzung von Vorschriften des Umstellungsrechts
+- **UErgG-3** Drittes Umstellungsergänzungsgesetz
+- **ÜSchuldStatG** Gesetz über die Statistik der Überschuldung privater Personen
+- **ÜvPÜbkG** Gesetz zu dem Übereinkommen vom 21. März 1983 über die Überstellung verurteilter Personen
+- **UFortsSaarG** Gesetz über die Fortsetzung aufgelöster saarländischer Unternehmen
+- **UhAnerkÜbkAG** Gesetz zur Ausführung des Haager Übereinkommens vom 15. April 1958 über die Anerkennung und Vollstreckung von Entscheidungen auf dem Gebiet der Unterhaltspflicht gegenüber Kindern
+- **UhAnsprAuslÜbkG** Gesetz zu dem Übereinkommen vom 20. Juni 1956 über die Geltendmachung von Unterhaltsansprüchen im Ausland
+- **UhEntsch-UhPflÜbkHaagG** Gesetz zu den Haager übereinkommen vom 2. Oktober 1973 über die Anerkennung und Vollstreckung von Unterhaltsentscheidungen sowie über das auf Unterhaltspflichten anzuwendende Recht
+- **UhRentAbÄndG** Gesetz zur vereinfachten Abänderung von Unterhaltsrenten
+- **UhTitelAnpG** Unterhaltstitelanpassungsgesetz
+- **UhÜbkG** Gesetz zu dem Übereinkommen vom 24. Oktober 1956 über das auf Unterhaltsverpflichtungen gegenüber Kindern anzuwendende Recht
+- **UhVorschG** Gesetz zur Sicherung des Unterhalts von Kindern alleinstehender Mütter und Väter durch Unterhaltsvorschüsse oder -ausfalleistungen
+- **UIG** Umweltinformationsgesetz
+- **UIG-2005** Umweltinformationsgesetz
+- **UKlaG** Gesetz über Unterlassungsklagen bei Verbraucherrechts- und anderen Verstößen
+- **UmstG** Drittes Gesetz zur Neuordnung des Geldwesens
+- **UmstGErwNwG** Gesetz über den Nachweis der Rechtmäßigkeit des Erwerbs von Umstellungsguthaben
+- **UmstRückstG** Gesetz über die Bildung von Rückstellungen in der Umstellungsrechnung der Geldinstitute, Versicherungsunternehmen und Bausparkassen und in der Altbankenrechnung der Berliner Altbanken
+- **UmvertPrämG-2014** Gesetz zur Gewährung einer Umverteilungsprämie 2014
+- **UmweltHEG** Gesetz über die Umwelthaftung
+- **UmweltHG** Umwelthaftungsgesetz
+- **UmwG** Umwandlungsgesetz
+- **UmwG-1995** Umwandlungsgesetz
+- **UmwRG** Gesetz über ergänzende Vorschriften zu Rechtsbehelfen in Umweltangelegenheiten nach der EG-Richtlinie 2003/35/EG
+- **UmWStatG** Gesetz über Umweltstatistiken
+- **UmwStG-1969** Gesetz über steuerliche Maßnahmen bei Änderung der Unternehmensform
+- **UmwStG-1977** Gesetz über steuerliche Maßnahmen bei Änderung der Unternehmensform (Artikel 1 d. Einführungsgesetzes zum Körperschaftsteuerreformgesetz)
+- **UmwStG-1995** Umwandlungssteuergesetz
+- **UmwStG-2006** Umwandlungssteuergesetz
+- **UnabhStärkG** Gesetz zur Stärkung der Unabhängigkeit der Richter und Gerichte
+- **UnBefG-1979** Gesetz über die unentgeltliche Beförderung Schwerbehinderter im öffentlichen Personenverkehr
+- **UNChG** Gesetz zum Beitritt der Bundesrepublik Deutschland zur Charta der Vereinten Nationen
+- **UNErlG** Gesetz zur Sicherung und Erleichterung der Aufgaben der Kommission der Vereinten Nationen in Deutschland
+- **UNFreiwProgrAbkG** Gesetz zu dem Abkommen vom 10. November 1995 zwischen der Bundesrepublik Deutschland und den Vereinten Nationen über den Sitz des Freiwilligenprogramms der Vereinten Nationen
+- **UNOImmÜbkG** Gesetz zu dem Übereinkommen vom 13. Februar 1946 über die Vorrechte und Immunitäten der Vereinten Nationen
+- **UNSekrSitzAbkÄndProtG** Gesetz zu dem Protokoll vom 7. Dezember 2005 zur Änderung des Abkommens vom 20. Juni 1996 zwischen der Regierung der Bundesrepublik Deutschland, den Vereinten Nationen und dem Sekretariat des Rahmenübereinkommens der Vereinten Nationen über Klimaänderungen über den Sitz des Sekretariats des Übereinkommens
+- **UNSekrSitzAbkG** Gesetz zu dem Abkommen vom 20. Juni 1996 zwischen der Regierung der Bundesrepublik Deutschland, den Vereinten Nationen und dem Sekretariat des Rahmenübereinkommens der Vereinten Nationen über Klimaänderungen über den Sitz des Sekretariats des Übereinkommens und zur Änderung des Bundesnaturschutzgesetzes
+- **UNSOrgVorRAbkG** Gesetz über den Beitritt der Bundesrepublik Deutschland zum Abkommen über die Vorrechte und Befreiungen der Sonderorganisationen der Vereinten Nationen vom 21. November 1947 und über die Gewährung von Vorrechten und Befreiungen an andere zwischenstaatliche Organisationen
+- **UNSOrgVorRAbkGÄndG-2** Zweites Gesetz zur Änderung des Gesetzes vom 22. Juni 1954 über den Beitritt der Bundesrepublik Deutschland zum Abkommen über die Vorrechte und Befreiungen der Sonderorganisationen der Vereinten Nationen vom 21. November 1947 und über die Gewährung von Vorrechten und Befreiungen an andere zwischen-staatliche Organisationen
+- **UntAbschlG** Gesetz über den Abschluß von Unterstützungen der Bürger der ehemaligen Deutschen Demokratischen Republik bei Gesundheitsschäden infolge medizinischer Maßnahmen
+- **UNWaVtrÜbkG** Gesetz zu dem Übereinkommen der Vereinten Nationen vom 11. April 1980 über Verträge über den internationalen Warenkauf sowie zur Änderung des Gesetzes zu dem Übereinkommen vom 19. Mai 1956 über den Beförderungsvertrag im internationalen Straßengüterverkehr (CMR)
+- **URaG** Umweltrahmengesetz
+- **UrhG** Gesetz über Urheberrecht und verwandte Schutzrechte
+- **UrhRSchFrVerlG** Gesetz zur Verlängerung der Schutzfristen im Urheberrecht
+- **UrhUSAG** Gesetz über den Schutz der Urheberrechte der Angehörigen der Vereinigten Staaten von Amerika
+- **UrhWahrnG** Gesetz über die Wahrnehmung von Urheberrechten und verwandten Schutzrechten
+- **UrkBefrBELG** Gesetz zu dem Abkommen vom 13. Mai 1975 zwischen der Bundesrepublik Deutschland und dem Königreich Belgien über die Befreiung öffentlicher Urkunden von der Legalisation
+- **UrkBefrFRAG** Gesetz zu dem Abkommen vom 13. September 1971 zwischen der Bundesrepublik Deutschland und der Französischen Republik über die Befreiung öffentlicher Urkunden von der Legalisation
+- **UrkBefrITAG** Gesetz zu dem Vertrag vom 7. Juni 1969 zwischen der Bundesrepublik Deutschland und der Italienischen Republik über den Verzicht auf die Legalisation von Urkunden
+- **UrkBefrÜbkG-Haag** Gesetz zu dem Haager Übereinkommen vom 5. Oktober 1961 zur Befreiung ausländischer öffentlicher Urkunden von der Legalisation
+- **UrkBeglG** Gesetz, betreffend die Beglaubigung öffentlicher Urkunden
+- **UrkStAuflG** Gesetz zur Auflösung der Urkundenstellen in den Ländern Brandenburg, Mecklenburg-Vorpommern, Sachsen, Sachsen-Anhalt und Thüringen
+- **UrlGG** Gesetz über die Gewährung eines jährlichen Urlaubsgeldes
+- **UrsprBezAbkFRAG** Gesetz zu dem Abkommen vom 8. März 1960 zwischen der Bundesrepublik Deutschland und der Französischen Republik über den Schutz von Herkunftsangaben, Ursprungsbezeichnungen und anderen geographischen Bezeichnungen
+- **USchadG** Gesetz über die Vermeidung und Sanierung von Umweltschäden
+- **USG** Gesetz über die Sicherung des Unterhalts der zum Wehrdienst einberufenen Wehrpflichtigen und ihrer Angehörigen
+- **USG-2015** Gesetz über die Leistungen an Reservistendienst Leistende und zur Sicherung des Unterhalts der Angehörigen von freiwilligen Wehrdienst Leistenden
+- **USG-2020** Gesetz über die Leistungen zur Sicherung des Unterhalts von Reservistendienst Leistenden
+- **UStatG** Gesetz über Umweltstatistiken
+- **UStatG-2005** Umweltstatistikgesetz
+- **UStBMG** Gesetz zur Anpassung des Umsatzsteuergesetzes und anderer Rechtsvorschriften an den EG-Binnenmarkt
+- **UStG-1980** Umsatzsteuergesetz
+- **UVBBErG** Gesetz zur Errichtung der Unfallversicherung Bund und Bahn
+- **UVGÄndG-3** Drittes Gesetz über Änderungen in der Unfallversicherung
+- **UVNG** Gesetz zur Neuregelung des Rechts der gesetzlichen Unfallversicherung
+- **UVPG** Gesetz über die Umweltverträglichkeitsprüfung
+- **UWG** Gesetz gegen den unlauteren Wettbewerb
+- **UWG-2004** Gesetz gegen den unlauteren Wettbewerb
+- **UWGÄndG-1994** Gesetz zur Änderung des Gesetzes gegen den unlauteren Wettbewerb
+- **UZwBwG** Gesetz über die Anwendung unmittelbaren Zwanges und die Ausübung besonderer Befugnisse durch Soldaten der Bundeswehr und verbündeter Streitkräfte sowie zivile Wachpersonen
+- **UZwG** Gesetz über den unmittelbaren Zwang bei Ausübung öffentlicher Gewalt durch Vollzugsbeamte des Bundes
+- **VAAufsG** Gesetz über die Beaufsichtigung der Versorgungsanstalt der deutschen Bühnen und der Versorgungsanstalt der deutschen Kulturorchester
+- **VAAufsG-2018** Gesetz über die Beaufsichtigung der Versorgungsanstalt der deutschen Bühnen und der Versorgungsanstalt der deutschen Kulturorchester
+- **VAbschlNOG** Gesetz zur Neuordnung der Versorgungsabschläge
+- **VAG** Gesetz über die Beaufsichtigung der Versicherungsunternehmen
+- **VAG-2016** Gesetz über die Beaufsichtigung der Versicherungsunternehmen
+- **VAGÄndG-8** Achtes Gesetz zur Änderung des Versicherungsaufsichtsgesetzes sowie zur Änderung des Finanzdienstleistungsaufsichtsgesetzes und anderer Vorschriften
+- **VAGEWGDG-3** Drittes Gesetz zur Durchführung versicherungsrechtlicher Richtlinien des Rates der Europäischen Gemeinschaften
+- **VaSBRLUmsG-VOSBVDG** Gesetz zur Umsetzung der Richtlinie über alternative Streitbeilegung in Verbraucherangelegenheiten und zur Durchführung der Verordnung über Online-Streitbeilegung in Verbraucherangelegenheiten
+- **VAÜG** Gesetz zur Überleitung des Versorgungsausgleichs auf das Beitrittsgebiet
+- **VBVG** Gesetz über die Vergütung von Vormündern und Betreuern
+- **VDG** Vertrauensdienstegesetz
+- **VerbrBekG** Gesetz zur Änderung des Strafgesetzbuches, der Strafprozeßordnung und anderer Gesetze
+- **VerbrKrG** Verbraucherkreditgesetz
+- **VerbrVerbG** Gesetz zur Überwachung strafrechtlicher und anderer Verbringungsverbote
+- **VerbÜbkParisHaagG** Gesetz über die am 6. November 1925 im Haag revidierte Pariser Verbandsübereinkunft zum Schutze des gewerblichen Eigentums
+- **VerdStatG** Gesetz über die Statistik der Verdienste und Arbeitskosten
+- **VereinsG** Gesetz zur Regelung des öffentlichen Vereinsrechts
+- **VerfSchNRG** Gesetz zur Neuregelung des Schutzes von Verfassungsorganen des Bundes
+- **VerifAbkAusfG** Ausführungsgesetz zu dem Übereinkommen vom 5. April 1973 zwischen dem Königreich Belgien, dem Königreich Dänemark, der Bundesrepublik Deutschland, Irland, der Italienischen Republik, dem Großherzogtum Luxemburg, dem Königreich der Niederlande, der Europäischen Atomgemeinschaft und der Internationalen Atomenergie-Organisation in Ausführung von Artikel III Abs. 1 und 4 des Vertrages vom 1. Juli 1968 über die Nichtverbreitung von Kernwaffen (Verifikationsabkommen)
+- **VerifAbkZProtG** Gesetz zu dem Zusatzprotokoll vom 22. September 1998 zu dem Übereinkommen vom 5. April 1973 (Verifikationsabkommen) zwischen den Nichtkernwaffenstaaten der Europäischen Atomgemeinschaft, der Europäischen Atomgemeinschaft und der Internationalen Atomenergie-Organisation in Ausführung von Artikel III Absätze 1 und 4 des Vertrages über die Nichtverbreitung von Kernwaffen
+- **VerifZusAusfG** Ausführungsgesetz zu dem Übereinkommen vom 5. April 1973 zwischen den Nichtkernwaffenstaaten der Europäischen Atomgemeinschaft, der Europäischen Atomgemeinschaft und der Internationalen Atomenergie-Organisation in Ausführung von Artikel III Abs. 1 und 4 des Vertrages vom 1. Juli 1968 über die Nichtverbreitung von Kernwaffen (Verifikationsabkommen) sowie zu dem Zusatzprotokoll zu diesem Übereinkommen vom 22. September 1998
+- **VerjG-2** Gesetz zur Verlängerung strafrechtlicher Verjährungsfristen
+- **VerjG-3** Gesetz zur weiteren Verlängerung strafrechtlicher Verjährungsfristen und zur Änderung des Gesetzes zur Entlastung der Rechtspflege
+- **VerKassG** Gesetz über die Errichtung einer Deutschen Verrechnungskasse
+- **VerkaufsprospektG** Wertpapier-Verkaufsprospektgesetz
+- **VerkDDRVtrG** Gesetz zu dem Vertrag vom 26. Mai 1972 zwischen der Bundesrepublik Deutschland und der Deutschen Demokratischen Republik über Fragen des Verkehrs
+- **VerkdHSpFruSpPflEG** Gesetz zur Einführung einer Speicherpflicht und einer Höchstspeicherfrist für Verkehrsdaten
+- **VerkFinG** Verkehrsfinanzgesetz 1955
+- **VerkFinG-1971** Gesetz über die weitere Finanzierung von Maßnahmen zur Verbesserung der Verkehrsverhältnisse der Gemeinden und des Bundesfernstraßenbaus
+- **VerkFlBerG** Gesetz zur Bereinigung der Rechtsverhältnisse an Verkehrsflächen und anderen öffentlich genutzten privaten Grundstücken
+- **VerkLG** Gesetz zur Sicherung von Verkehrsleistungen
+- **VerkPBG** Gesetz zur Beschleunigung der Planungen für Verkehrswege in den neuen Ländern sowie im Land Berlin
+- **VerkSiG** Gesetz zur Sicherstellung des Verkehrs
+- **VerkStatG** Gesetz über die Statistik der See- und Binnenschifffahrt, des Güterkraftverkehrs, des Luftverkehrs sowie des Schienenverkehrs und des gewerblichen Straßen-Personenverkehrs
+- **VerkVereinfG** Gesetz über vereinfachte Verkündungen und Bekanntgaben
+- **VerlG** Gesetz über das Verlagsrecht
+- **VerlStrVfG-1** Erstes Gesetz zur Verbesserung der Stellung des Verletzten im Strafverfahren
+- **VermAnlG** Gesetz über Vermögensanlagen
+- **VermBG-2** Fünftes Gesetz zur Förderung der Vermögensbildung der Arbeitnehmer
+- **VermG** Gesetz zur Regelung offener Vermögensfragen
+- **VermRÄndG-2** Gesetz zur Änderung des Vermögensgesetzes und anderer Vorschriften
+- **VermRglAbkCHEG** Gesetz über die drei Abkommen zwischen der Bundesrepublik Deutschland und der Schweizerischen Eidgenossenschaft über die deutschen Vermögenswerte in der Schweiz, über die Regelung der Forderungen der Schweizerischen Eidgenossenschaft gegen das ehemalige Deutsche Reich und zum deutschen Lastenausgleich
+- **VermRglAbkCHEG-3G** Gesetz über die Verlängerung der in § 3 des Gesetzes über die drei Abkommen zwischen der Bundesrepublik Deutschland und der Schweizerischen Eidgenossenschaft über die deutschen Vermögenswerte in der Schweiz, über die Regelung der Forderungen der Schweizerischen Eidgenossenschaft gegen das ehemalige Deutsche Reich und zum deutschen Lastenausgleich enthaltenen Fristen
+- **VermRglAbkCOLG** Gesetz zu dem Abkommen vom 4. August 1962 zwischen der Bundesrepublik Deutschland und der Republik Kolumbien über deutsche Vermögenswerte in Kolumbien
+- **VermRglAbkEGYG** Gesetz zur Verteilung von Entschädigungen für deutsches Vermögen in Ägypten und in Honduras sowie zum Abkommen vom 28. April 1980 zwischen der Bundesrepublik Deutschland und der Arabischen Republik Ägypten über die Regelung gewisser Fragen betreffend deutsches Vermögen
+- **VermRglAbkIRNG** Gesetz zu dem Abkommen vom 22. Dezember 1959 zwischen der Bundesrepublik Deutschland und dem Kaiserreich Iran über die Liquidation des früheren deutsch-iranischen Verrechnungsverkehrs
+- **VermRglAbkISRG** Gesetz über die Verteilung des auf die Bundesrepublik Deutschland entfallenden Anteils an der von Israel für das deutsche weltliche Vermögen in Israel nach dem Abkommen vom 1. Juni 1962 gezahlten Entschädigung
+- **VermRglAbkITAG** Gesetz zu dem Abkommen vom 19. Oktober 1967 zwischen der Bundesrepublik Deutschland und der Italienischen Republik über die Regelung vermögensrechtlicher, wirtschaftlicher und finanzieller, mit dem Zweiten Weltkrieg zusammenhängender Angelegenheiten
+- **VermRglAbkPRTG** Gesetz zu den drei Abkommen vom 3. April 1958 zwischen der Bundesrepublik Deutschland und der Portugiesischen Republik über deutsche Vermögenswerte in Portugal, auf dem Gebiet des gewerblichen Rechtsschutzes und über die Liquidation des früheren deutsch-portugiesischen Verrechnungsverkehrs
+- **VermRglAbkSWEG** Gesetz zu den am 22. März 1956 in Bonn unterzeichneten drei Abkommen zwischen der Bundesrepublik Deutschland und dem Königreich Schweden über deutsche Vermögenswerte in Schweden, über die Wiederherstellung gewerblicher Schutzrechte und zum deutschen Lastenausgleich
+- **VermRglVtrETHG** Gesetz zum Vertrag vom 21. April 1964 zwischen der Bundesrepublik Deutschland und dem Kaiserreich Äthiopien über die Entschädigung für das deutsche Vermögen in Äthiopien
+- **VermRglVtrISR-AUSG** Gesetz zum Vertrag vom 21. April 1965 zwischen der Bundesrepublik Deutschland und dem Australischen Bund über die Aufteilung der von der Regierung des Staates Israel für das deutsche weltliche Vermögen in Israel gezahlten Entschädigung auf Deutschland und Australien
+- **VermSammlG** Gesetz zur Sammlung von Nachrichten über Kriegsgefangene, festgehaltene oder verschleppte Zivilpersonen und Vermißte
+- **VerpackG** Gesetz über das Inverkehrbringen, die Rücknahme und die hochwertige Verwertung von Verpackungen
+- **VerpflG** Gesetz über die förmliche Verpflichtung nichtbeamteter Personen
+- **VersammlG** Gesetz über Versammlungen und Aufzüge
+- **VersAnsprReglG** Gesetz zur Regelung von Ansprüchen aus Lebens- und Rentenversicherungen
+- **VersAnsprReglGÄndG** Gesetz zur Änderung und Ergänzung des Gesetzes zur Regelung von Ansprüchen aus Lebens- und Rentenversicherungen
+- **VersAnsprReglGÄndG-2** Zweites Gesetz zur Änderung und Ergänzung des Gesetzes zur Regelung von Ansprüchen aus Lebens- und Rentenversicherungen
+- **VersAusglG** Gesetz über den Versorgungsausgleich
+- **VersAusglKassG** Gesetz über die Versorgungsausgleichskasse
+- **VerschÄndG** Gesetz zur Änderung von Vorschriften des Verschollenheitsrechts
+- **VerschG** Verschollenheitsgesetz
+- **VersorgAusglHärteG** Gesetz zur Regelung von Härten im Versorgungsausgleich
+- **VersorgAusglMaßnG** Gesetz über weitere Maßnahmen auf dem Gebiet des Versorgungsausgleichs
+- **VersRücklG** Gesetz über eine Versorgungsrücklage des Bundes
+- **VersRuhG** Gesetz über das Ruhen von Ansprüchen aus Sonder- und Zusatzversorgungssystemen
+- **VersStG** Versicherungsteuergesetz
+- **Verstrom1996-2005G** Gesetz zur Sicherung des Einsatzes von Steinkohle in der Verstromung in den Jahren 1996 bis 2005 (Artikel 1 des Gesetzes zur Sicherung des Einsatzes von Steinkohle in der Verstromung und zur Änderung des Atomgesetzes und des Stromeinspeisungsgesetzes)
+- **VerstromG-1** Gesetz zur Förderung der Verwendung von Steinkohle in Kraftwerken
+- **VerstromG-2** Gesetz zur Sicherung des Steinkohleneinsatzes in der Elektrizitätswirtschaft
+- **VerstromG-3** Gesetz über die weitere Sicherung des Einsatzes von Gemeinschaftskohle in der Elektrizitätswirtschaft
+- **VerstromG-4** Gesetz zur Steinkohleverstromung im Jahre 1996 (Artikel 2 des Gesetzes zur Sicherung des Einsatzes von Steinkohle in der Verstromung und zur Änderung des Atomgesetzes und des Stromeinspeisungsgesetzes)
+- **VerstromG-5** Gesetz über Hilfen für den deutschen Steinkohlebergbau bis zum Jahr 2005
+- **VerstromG3AbwG** Gesetz zur Abwicklung des Ausgleichsfonds nach dem Dritten Verstromungsgesetz
+- **VertLastÄndG** Gesetz zur Änderung des Gesetzes zum NATO-Truppenstatut und anderer Gesetze
+- **VertrGüterstG** Gesetz über den ehelichen Güterstand von Vertriebenen und Flüchtlingen
+- **VertrZuwG** Gesetz über eine einmalige Zuwendung an die im Beitrittsgebiet lebenden Vertriebenen
+- **VerwFöG** Gesetz zur Förderung der anderweitigen Verwendung von Berufssoldaten und Beamten
+- **VfMängelBerG** Gesetz zur Bereinigung von Verfahrensmängeln beim Erlaß einiger Gesetze
+- **VGFGVfBeschlG** Gesetz zur Beschleunigung verwaltungsgerichtlicher und finanzgerichtlicher Verfahren
+- **VGG** Gesetz über die Wahrnehmung von Urheberrechten und verwandten Schutzrechten durch Verwertungsgesellschaften
+- **VgHilAbkUSAG** Gesetz über das Abkommen vom 30. Juni 1955 zwischen der Bundesrepublik Deutschland und den Vereinigten Staaten von Amerika über gegenseitige Verteidigungshilfe
+- **VglO** Vergleichsordnung
+- **VgRÄG** Gesetz zur Änderung der Rechtsgrundlagen für die Vergabe öffentlicher Aufträge
+- **VideokonfIntensG** Gesetz zur Intensivierung des Einsatzes von Videokonferenztechnik in gerichtlichen und staatsanwaltschaftlichen Verfahren
+- **ViehFlG** Gesetz über den Verkehr mit Vieh und Fleisch
+- **ViehSeuchG** Tierseuchengesetz
+- **VIFGG** Gesetz zur Errichtung einer Verkehrsinfrastrukturfinanzierungsgesellschaft zur Finanzierung von Bundesverkehrswegen
+- **VIG** Gesetz zur Verbesserung der gesundheitsbezogenen Verbraucherinformation
+- **VISZG** Gesetz über den Zugang von Polizei- und Strafverfolgungsbehörden sowie Nachrichtendiensten zum Visa-Informationssystem
+- **VKAbgG** Gesetz über Rechtsverhältnisse der Abgeordneten der Volkskammer der Deutschen Demokratischen Republik
+- **VkENOG** Gesetz zur Neuordnung der Verantwortung in der kerntechnischen Entsorgung
+- **VoEntschRP-NSG** Gesetz über die Volksentscheide auf Grund der nach Artikel 29 Abs. 2 GG in den Ländern Rheinland-Pfalz und Niedersachsen zustande gekommenen Volksbegehren
+- **VollstrAbkBELAG** Gesetz zur Ausführung des Abkommens zwischen der Bundesrepublik Deutschland und dem Königreich Belgien vom 30. Juni 1958 über die gegenseitige Anerkennung und Vollstreckung von gerichtlichen Entscheidungen, Schiedssprüchen und öffentlichen Urkunden in Zivil- und Handelssachen
+- **VollstrAbkCHEG** Gesetz über das deutsch-schweizerische Abkommen über die gegenseitige Anerkennung und Vollstreckung von gerichtlichen Entscheidungen und Schiedssprüchen
+- **VollstrAbkGBRAG** Gesetz zur Ausführung des Abkommens vom 14. Juli 1960 zwischen der Bundesrepublik Deutschland und dem Vereinigten Königreich Großbritannien und Nordirland über die gegenseitige Anerkennung und Vollstreckung von gerichtlichen Entscheidungen in Zivil- und Handelssachen
+- **VollstrAStrVEGÜbkG** Gesetz zu dem Übereinkommen vom 13. November 1991 zwischen den Mitgliedstaaten der Europäischen Gemeinschaften über die Vollstreckung ausländischer strafrechtlicher Verurteilungen
+- **VollstrVtrESPG** Gesetz zu dem Vertrag vom 14. November 1983 zwischen der Bundesrepublik Deutschland und Spanien über die Anerkennung und Vollstreckung von gerichtlichen Entscheidungen und Vergleichen sowie vollstreckbaren öffentlichen Urkunden in Zivil- und Handelssachen
+- **VollstrVtrGRCAG** Gesetz zur Ausführung des Vertrages vom 4. November 1961 zwischen der Bundesrepublik Deutschland und dem Königreich Griechenland über die gegenseitige Anerkennung und Vollstreckung von gerichtlichen Entscheidungen, Vergleichen und öffentlichen Urkunden in Zivil- und Handelssachen
+- **VollstrVtrNLDAG** Gesetz zur Ausführung des Vertrages vom 30. August 1962 zwischen der Bundesrepublik Deutschland und dem Königreich der Niederlande über die gegenseitige Anerkennung und Vollstreckung gerichtlicher Entscheidungen und anderer Schuldtitel in Zivil- und Handelssachen
+- **VollstrVtrTUNAG** Gesetz zur Ausführung des Vertrages vom 19. Juli 1966 zwischen der Bundesrepublik Deutschland und der Tunesischen Republik über Rechtsschutz und Rechtshilfe, die Anerkennung und Vollstreckung gerichtlicher Entscheidungen in Zivil- und Handelssachen sowie über die Handelsschiedsgerichtsbarkeit
+- **VollstrZustProtG** Gesetz zu dem Protokoll vom 3. Juni 1971 betreffend die Auslegung des Übereinkommens vom 27. September 1968 über die gerichtliche Zuständigkeit und die Vollstreckung gerichtlicher Entscheidungen in Zivil- und Handelssachen durch den Gerichtshof
+- **VollstrZustÜbk1988G** Gesetz zu dem Übereinkommen vom 16. September 1988 über die gerichtliche Zuständigkeit und die Vollstreckung gerichtlicher Entscheidungen in Zivil- und Handelssachen
+- **VollstrZustÜbk2007Prot2ÜG** Gesetz über die Übermittlung gerichtlicher Entscheidungen nach dem Protokoll 2 zum Übereinkommen vom 30. Oktober 2007 über die gerichtliche Zuständigkeit und die Anerkennung und Vollstreckung von Entscheidungen in Zivil- und Handelssachen
+- **VormAbkAUTG** Gesetz über das Vormundschaftsabkommen zwischen dem Deutschen Reiche und der Republik Österreich
+- **VoZählG-1970** Gesetz über eine Volks-, Berufs- und Arbeitsstättenzählung
+- **VoZählG-1987** Gesetz über eine Volks-, Berufs-, Gebäude-, Wohnungs- und Arbeitsstättenzählung
+- **VplG** Gesetz über die Verplombung im Durchgangsverkehr von zivilen Gütern zwischen der Bundesrepublik Deutschland und Berlin (West)
+- **VReformG** Gesetz zur Umsetzung des Versorgungsberichts
+- **VRG** Gesetz zur Förderung von Vorruhestandsleistungen
+- **VSBG** Gesetz über die alternative Streitbeilegung in Verbrauchersachen
+- **VSchDG** EG-Verbraucherschutzdurchsetzungsgesetz
+- **VsorglastVteilStVtrG** Gesetz zu dem Staatsvertrag vom 16. Dezember 2009 und 26. Januar 2010 über die Verteilung von Versorgungslasten bei bund- und länderübergreifenden Dienstherrenwechseln
+- **VStG-1974** Vermögensteuergesetz
+- **VStGB** Völkerstrafgesetzbuch
+- **VStRG** Gesetz zur Reform des Vermögensteuerrechts und zur Änderung anderer Steuergesetze
+- **VtrHiG** Gesetz über die richterliche Vertragshilfe
+- **VtrLUXG** Gesetz zu dem Vertrag vom 11. Juli 1959 zwischen der Bundesrepublik Deutschland und dem Großherzogtum Luxemburg
+- **VtrRKonvG** Gesetz zu dem Wiener Übereinkommen vom 23. Mai 1969 über das Recht der Verträge
+- **VUVNG** Gesetz zur vorläufigen Neuregelung von Geldleistungen in der gesetzlichen Unfallversicherung
+- **VUVNG-2** Zweites Gesetz zur vorläufigen Neuregelung von Geldleistungen in der gesetzlichen Unfallversicherung
+- **VVG** Gesetz über den Versicherungsvertrag
+- **VVG-2008** Gesetz über den Versicherungsvertrag
+- **VVGEG** Einführungsgesetz zum Versicherungsvertragsgesetz
+- **VWDG** Gesetz zur Errichtung einer Visa-Warndatei
+- **VwDVG** Gesetz über die Verwendung von Verwaltungsdaten für Zwecke der Wirtschaftsstatistiken
+- **VwDVG-2010** Gesetz über die Verwendung von Verwaltungsdaten für Zwecke der Wirtschaftsstatistiken
+- **VWGmbHG** Gesetz über die Regelung der Rechtsverhältnisse bei der Volkswagenwerk Gesellschaft mit beschränkter Haftung
+- **VWGmbHÜG** Gesetz über die Überführung der Anteilsrechte an der Volkswagenwerk Gesellschaft mit beschränkter Haftung in private Hand
+- **VwGO** Verwaltungsgerichtsordnung
+- **VwGOÄndG-6** Sechstes Gesetz zur Änderung der Verwaltungsgerichtsordnung und anderer Gesetze
+- **VwGRmBeschrG** Gesetz zur Beschränkung von Rechtsmitteln in der Verwaltungsgerichtsbarkeit
+- **VwKostG** Verwaltungskostengesetz
+- **VwRehaG** Gesetz über die Aufhebung rechtsstaatswidriger Verwaltungsentscheidungen im Beitrittsgebiet und die daran anknüpfenden Folgeansprüche
+- **VwVereinfG** Gesetz zur Vereinfachung und Verbilligung der Verwaltung
+- **VwVfG** Verwaltungsverfahrensgesetz
+- **VwVfRÄndG** Gesetz zur Änderung verwaltungsverfahrensrechtlicher Vorschriften
+- **VwVfRBerG-1** Erstes Gesetz zur Bereinigung des Verwaltungsverfahrensrechts
+- **VwVG** Verwaltungs-Vollstreckungsgesetz
+- **VwZG** Verwaltungszustellungsgesetz
+- **VwZG-2005** Verwaltungszustellungsgesetz
+- **VZOG** Gesetz über die Feststellung der Zuordnung von ehemals volkseigenem Vermögen
+- **WährG** Gesetz Nr. 61 - Erstes Gesetz zur Neuordnung des Geldwesens
+- **WährUmStAbschlG** Gesetz zum Abschluß der Währungsumstellung
+- **WaffG** Waffengesetz
+- **WaffG-2002** Waffengesetz
+- **WaffGÄndG** Gesetz zur Änderung des Waffengesetzes
+- **WAG** Gesetz über einen Währungsausgleich für Sparguthaben Vertriebener
+- **WahlPrG** Wahlprüfungsgesetz
+- **WalfÜbkG** Gesetz zu dem Internationalen Übereinkommen vom 2. Dezember 1946 zur Regelung des Walfangs
+- **WaschMG** Gesetz über die Umweltverträglichkeit von Wasch- und Reinigungsmitteln
+- **WasKwVÄndG** Gesetz zur Änderung der Verordnung über die steuerliche Begünstigung von Wasserkraftwerken
+- **WasSiG** Gesetz über die Sicherstellung von Leistungen auf dem Gebiet der Wasserwirtschaft für Zwecke der Verteidigung
+- **WassLÜbkÄndG** Gesetz zur Änderung des Übereinkommen vom 17. März 1992 zum Schutz und zur Nutzung grenzüberschreitender Wasserläufe und internationaler Seen
+- **WassLÜbkG** Gesetz zu dem Übereinkommen vom 17. März 1992 zum Schutz und zur Nutzung grenzüberschreitender Wasserläufe und internationaler Seen
+- **WAStAÜStVtrG** Gesetz zum Staatsvertrag über den Übergang der Aufgaben der Deutschen Dienststelle für die Benachrichtigung der nächsten Angehörigen von Gefallenen der ehemaligen deutschen Wehrmacht (WASt)
+- **WaStrAbG** Bundeswasserstraßenausbaugesetz
+- **WaStrAbgG** Gesetz betreffend den Ausbau der deutschen Wasserstraßen und die Erhebung von Schiffahrtsabgaben
+- **WaStrG** Bundeswasserstraßengesetz
+- **WaStrSaarG** Gesetz über den rechtlichen Status der Bundeswasserstraße Saar
+- **WaStrÜbgVtrG** Gesetz über den Staatsvertrag betreffend den Übergang der Wasserstraßen von den Ländern auf das Reich (Anhang zum Gesetz über die vermögensrechtlichen Verhältnisse der Bundeswasserstraßen)
+- **WaStrÜbgVtrGNtrag** Nachtrag zu dem Gesetz über den Staatsvertrag betreffend den Übergang der Wasserstraßen von den Ländern auf das Reich (Anhang zum Gesetz über die vermögensrechtlichen Verhältnisse der Bundeswasserstraßen)
+- **WaStrÜbgVtrGNtrag-2** Zweiter Nachtrag zu dem Gesetz über den Staatsvertrag betreffend den Übergang der Wasserstraßen von den Ländern auf das Reich (Anhang zum Gesetz über die vermögensrechtlichen Verhältnisse der Bundeswasserstraßen)
+- **WaStrVermRG** Gesetz über die vermögensrechtlichen Verhältnisse der Bundeswasserstraßen
+- **WBO** Wehrbeschwerdeordnung
+- **WBStiftG** Gesetz über die Errichtung einer Bundeskanzler-Willy-Brandt-Stiftung
+- **WBVG** Gesetz zur Regelung von Verträgen über Wohnraum mit Pflege- oder Betreuungsleistungen
+- **WDNeuOG** Gesetz zur Neuordnung des Wehrdisziplinarrechts
+- **WDO** Wehrdisziplinarordnung
+- **WDO-2002** Wehrdisziplinarordnung
+- **WehrbBTG** Gesetz über den Wehrbeauftragten des Deutschen Bundestages
+- **WehrdG** Gesetz über den Wehrdienst in der Deutschen Demokratischen Republik
+- **WehrgVerbG** Gesetz zur Verbesserung der Wehrgerechtigkeit und Verlängerung der Dauer des Grundwehrdienstes
+- **WehrLstgG** Gesetz über Sachleistungen für Reichsaufgaben
+- **WehrPfl-ErsDiVAG** Gesetz zur Aussetzung der Verlängerung des Grundwehrdienstes und des Zivildienstes
+- **WehrPflG** Wehrpflichtgesetz
+- **WehrPflG-ZDGÄndG-2** Zweites Gesetz zur Änderung des Wehrpflichtgesetzes und des Zivildienstgesetzes
+- **WehrRÄndG** Gesetz zur Änderung wehrrechtlicher, ersatzdienstrechtlicher und anderer Vorschriften
+- **WeinG** Weingesetz
+- **WeinG-1971** Gesetz zur vorläufigen Aufrechterhaltung weinrechtlicher Vorschriften betreffend Branntwein aus Wein
+- **WeinG-1994** Weingesetz
+- **WeinWiG** Gesetz über Maßnahmen auf dem Gebiet der Weinwirtschaft
+- **WeinWiGÄndG-5** Fünftes Gesetz zur Änderung des Weinwirtschaftsgesetzes
+- **WeltHiVbdAbkG** Gesetz zu dem Abkommen über die Gründung eines Welthilfsverbandes
+- **WerraSalzG** Gesetz über den Abbau von Salzen im Grenzgebiet an der Werra
+- **WerraSalzGAufhG** Gesetz zur Aufhebung des Gesetzes über den Abbau von Salzen im Grenzgebiet an der Werra
+- **WertAusglG** Gesetz über die Regelung der Rechtsverhältnisse bei baulichen Maßnahmen auf ehemals in Anspruch genommenen Grundstücken
+- **WettbewG** Gesetz gegen Wettbewerbsbeschränkungen
+- **WFStG** Gesetz zur Übernahme von Gewährleistungen zum Erhalt der für die Finanzstabilität in der Währungsunion erforderlichen Zahlungsfähigkeit der Hellenischen Republik
+- **WG** Wechselgesetz
+- **WGEG** Einführungsgesetz zum Wechselgesetz
+- **WGemRefKiVtrG** Gesetz zu dem Vertrag vom 14. April 2014 zwischen der Bundesrepublik Deutschland und der Weltgemeinschaft Reformierter Kirchen – Körperschaft des öffentlichen Rechts –
+- **WGLeistVtrITAG** Gesetz zu dem Vertrag vom 2. Juni 1961 zwischen der Bundesrepublik Deutschland und der Italienischen Republik über Leistungen zugunsten italienischer Staatsangehöriger, die von nationalsozialistischen Verfolgungsmaßnahmen betroffen worden sind
+- **WGSVG** Gesetz zur Regelung der Wiedergutmachung nationalsozialistischen Unrechts in der Sozialversicherung
+- **WGSVGÄndG** Gesetz zur Änderung und Ergänzung der Vorschriften über die Wiedergutmachung nationalsozialistischen Unrechts in der Sozialversicherung
+- **WGÜbfG** Gesetz zur Überführung der Wohnungsgemeinnützigkeit in den allgemeinen Wohnungsmarkt
+- **WGVG** Gesetz zur Regelung vermögensrechtlicher Angelegenheiten der Wohnungsgenossenschaften im Beitrittsgebiet
+- **WHG** Gesetz zur Ordnung des Wasserhaushalts
+- **WHG-2009** Gesetz zur Ordnung des Wasserhaushalts
+- **WHGÄndG-3** Drittes Gesetz zur Änderung des Wasserhaushaltsgesetzes
+- **WHGÄndG-4** Viertes Gesetz zur Änderung des Wasserhaushaltsgesetzes
+- **WHGÄndG-6** Sechstes Gesetz zur Änderung des Wasserhaushaltsgesetzes (WHG)
+- **WiKG-1** Erstes Gesetz zur Bekämpfung der Wirtschaftskriminalität
+- **WiKonzUG** Gesetz über eine Untersuchung der Konzentration in der Wirtschaft
+- **WiKrAusglWG** Gesetz zum Ausgleich unterschiedlicher Wirtschaftskraft und zur Förderung des wirtschaftlichen Wachstums in den neuen Ländern
+- **WildTArtÜbkG** Gesetz zu dem Übereinkommen vom 23. Juni 1979 zur Erhaltung der wandernden wildlebenden Tierarten
+- **WindSeeG** Gesetz zur Entwicklung und Förderung der Windenergie auf See
+- **WiNuEG** Gesetz zur Erprobung einer bundeseinheitlichen Wirtschaftsnummer
+- **WiPrO** Gesetz über eine Berufsordnung der Wirtschaftsprüfer
+- **WiPrOÄndG-3** Drittes Gesetz zur Änderung der Wirtschaftsprüferordnung
+- **WiSiG-1965** Gesetz über die Sicherstellung von Leistungen auf dem Gebiet der gewerblichen Wirtschaft sowie des Geld- und Kapitalverkehrs
+- **WismutAGAbkG** Gesetz zu dem Abkommen vom 16. Mai 1991 zwischen der Regierung der Bundesrepublik Deutschland und der Regierung der Union der Sozialistischen Sowjetrepubliken über die Beendigung der Tätigkeit der Sowjetisch-Deutschen Aktiengesellschaft Wismut
+- **WissFG** Gesetz zur Flexibilisierung von haushaltsrechtlichen Rahmenbedingungen außeruniversitärer Wissenschaftseinrichtungen
+- **WissZeitVG** Gesetz über befristete Arbeitsverträge in der Wissenschaft
+- **WiStrG-1954** Gesetz zur weiteren Vereinfachung des Wirtschaftsstrafrechts
+- **WiStruktG** Gesetz über die Gemeinschaftsaufgabe "Verbesserung der regionalen Wirtschaftsstruktur"
+- **WiVersAufhG** Gesetz zur Aufhebung des Gesetzes über die Versicherung der volkseigenen Wirtschaft
+- **WKBG** Gesetz zur Förderung von Wagniskapitalbeteiligungen
+- **WKSchG-2** Zweites Gesetz über den Kündigungsschutz für Mietverhältnisse über Wohnraum
+- **WoBauÄndG-1965** Gesetz zur verstärkten Eigentumsbildung im Wohnungsbau und zur Sicherung der Zweckbestimmung von Sozialwohnungen
+- **WoBauÄndG-1968** Gesetz zur Fortführung des sozialen Wohnungsbaus
+- **WoBauÄndG-1980** Gesetz zur Änderung des Wohnungsbindungsgesetzes und des Zweiten Wohnungsbaugesetzes
+- **WoBauÄndG-1988** Gesetz zur Änderung des Zweiten Wohnungsbaugesetzes und des Wohnungsbaugesetzes für das Saarland
+- **WoBauFöG** Gesetz über die Förderung des Wohnungsbaus für Umsiedler in den Aufnahmeländern und des Wohnungsbaus für Sowjetzonenflüchtlinge in Berlin
+- **WoBauG-2** Zweites Wohnungsbaugesetz
+- **WoBauG1-2ÄndG** Gesetz zur Änderung des Ersten Wohnungsbaugesetzes und des Zweiten Wohnungsbaugesetzes
+- **WoBauG2ÄndG** Gesetz zur Änderung des Zweiten Wohnungsbaugesetzes, anderer wohnungsbaurechtlicher Vorschriften und über die Rückerstattung von Baukostenzuschüssen
+- **WoBeihGÄndG** Gesetz zur Änderung des Gesetzes über Wohnbeihilfen
+- **WoBGG** Gesetz über die Gewährleistung von Belegungsrechten im kommunalen und genossenschaftlichen Wohnungswesen
+- **WoBindG** Gesetz zur Sicherung der Zweckbestimmung von Sozialwohnungen
+- **WoEigG** Gesetz über das Wohnungseigentum und das Dauerwohnrecht
+- **WoEigGÄndG** Gesetz zur Änderung des Wohnungseigentumsgesetzes und der Verordnung über das Erbbaurecht
+- **WoFG** Gesetz über die soziale Wohnraumförderung
+- **WoFÜG** Gesetz zur Überleitung der sozialen Wohnraumförderung auf die Länder
+- **WOGeistEigÜbkuaG** Gesetz über die am 14. Juli 1967 in Stockholm unterzeichneten Übereinkünfte auf dem Gebiet des geistigen Eigentums
+- **WoGG** Wohngeldgesetz
+- **WoGG-2** Wohngeldgesetz
+- **WoGSoG** Gesetz über Sondervorschriften für die vereinfachte Gewährung von Wohngeld in dem in Artikel 3 des Einigungsvertrages genannten Gebiet
+- **WoModG** Gesetz zur Förderung der Modernisierung von Wohnungen und von Maßnahmen zur Einsparung von Heizenergie
+- **WoPG** Wohnungsbau-Prämiengesetz
+- **WositVerbBlnG** Gesetz zur dauerhaften sozialen Verbesserung der Wohnungssituation im Land Berlin
+- **WoStatG** Gesetz über gebäude- und wohnungsstatistische Erhebungen
+- **WoStichPrG** Gesetz über die Durchführung einer Repräsentativstatistik auf dem Gebiet des Wohnungswesens
+- **WoStichPrG-1972** Gesetz über die Durchführung einer Repräsentativstatistik auf dem Gebiete des Wohnungswesens und des Städtebaus
+- **WoVermRG** Gesetz zur Regelung der Wohnungsvermittlung
+- **WoVSKlG** Gesetz über eine Sozialklausel in Gebieten mit gefährdeter Wohnungsversorgung (Artikel 14 des Gesetzes zur Erleichterung von Investitionen und der Ausweisung und Bereitstellung von Wohnbauland)
+- **WoZählVorbG** Gesetz zur Vorbereitung der Gebäude-, Wohnungs- und Arbeitsstättenzählung 1975
+- **WPapBerG** Gesetz zur Bereinigung des Wertpapierwesens
+- **WPapBerGÄndG** Gesetz zur Änderung und Ergänzung des Wertpapierbereinigungsgesetzes
+- **WPapBerGÄndG-2** Zweites Gesetz zur Änderung und Ergänzung des Wertpapierbereinigungsgesetzes
+- **WPapBerGÄndG-3** Drittes Gesetz zur Änderung und Ergänzung des Wertpapierbereinigungsgesetzes
+- **WPapBerSchlG** Viertes Gesetz zur Änderung und Ergänzung des Wertpapierbereinigungsgesetzes
+- **WPapG** Gesetz über die Verwahrung und Anschaffung von Wertpapieren
+- **WPapGÄndG** Gesetz zur Änderung des Gesetzes über die Verwahrung und Anschaffung von Wertpapieren
+- **WPapHdlG** Gesetz über den Wertpapierhandel
+- **WPapRMBerG** Gesetz zur Bereinigung der auf Reichsmark lautenden Wertpapiere der Konversionskasse für deutsche Auslandsschulden
+- **WPapUmstG** Gesetz über die Börsenzulassung umgestellter Wertpapiere
+- **WpHG** Gesetz über den Wertpapierhandel
+- **WPostVtr1979G** Gesetz zu den Verträgen vom 26. Oktober 1979 des Weltpostvereins
+- **WPostVtr1984G** Gesetz zu den Verträgen vom 27. Juli 1984 des Weltpostvereins
+- **WPostVtr1989G** Gesetz zu den Verträgen vom 14. Dezember 1989 des Weltpostvereins
+- **WPostVtr1994G** Gesetz zu den Verträgen vom 14. September 1994 des Weltpostvereins
+- **WPostVtr1999G** Gesetz zu den Verträgen vom 15. September 1999 des Weltpostvereins
+- **WPostVtr2016G** Gesetz zu den Verträgen vom 5. Oktober 2004, 12. August 2008, 11. Oktober 2012 und 6. Oktober 2016 des Weltpostvereins
+- **WpPG** Gesetz über die Erstellung, Billigung und Veröffentlichung des Prospekts, der beim öffentlichen Angebot von Wertpapieren oder bei der Zulassung von Wertpapieren zum Handel an einem organisierten Markt zu veröffentlichen ist
+- **WpÜG** Wertpapiererwerbs- und Übernahmegesetz
+- **WrackBKostDG** Gesetz über die Durchsetzung von Kostenforderungen aus dem Internationalen Übereinkommen von Nairobi von 2007 über die Beseitigung von Wracks
+- **WRegG** Gesetz zur Einrichtung und zum Betrieb eines Registers zum Schutz des Wettbewerbs um öffentliche Aufträge und Konzessionen
+- **WRMG** Gesetz über die Umweltverträglichkeit von Wasch- und Reinigungsmitteln
+- **WRV** Die Verfassung des Deutschen Reichs
+- **WSG** Gesetz über die Geld- und Sachbezüge der Soldaten, die auf Grund der Wehrpflicht Wehrdienst leisten
+- **WSG-2020** Wehrsoldgesetz
+- **WStatG** Gesetz über die allgemeine und die repräsentative Wahlstatistik bei der Wahl zum Deutschen Bundestag und bei der Wahl der Abgeordneten des Europäischen Parlaments aus der Bundesrepublik Deutschland
+- **WStrG** Wehrstrafgesetz
+- **WStrGEG** Einführungsgesetz zum Wehrstrafgesetz
+- **WSVZustRVenÄndG** Gesetz zur Änderung von Rechtsverordnungen hinsichtlich der Zuständigkeiten von Bundesbehörden im Bereich der Wasserstraßen- und Schifffahrtsverwaltung des Bundes
+- **WTOÜbkG** Gesetz zu dem Übereinkommen vom 15. April 1994 zur Errichtung der Welthandelsorganisation und zur Änderung anderer Gesetze
+- **WucherG** Gesetz betreffend den Wucher
+- **WUFG** Gesetz zur Regelung der Folgen rechtswidriger Handlungen bei der Währungsumstellung von Mark der Deutschen Demokratischen Republik in Deutsche Mark
+- **WUmstAusglFG** Gesetz über die Errichtung des Ausgleichsfonds Währungsumstellung
+- **WUmstrwHFG** Gesetz zur Feststellung von rechtswidrigen Handlungen mit Wirkung auf die Währungsumstellung von Mark der Deutschen Demokratischen Republik in Deutsche Mark
+- **WVerkDDRStatG** Gesetz über die Statistik des Warenverkehrs mit dem in Artikel 3 des Einigungsvertrages genannten Gebiet
+- **WVG** Gesetz über Wasser- und Bodenverbände
+- **WVögelAbkG** Gesetz zu dem Abkommen vom 16. Juni 1995 zur Erhaltung der afrikanisch-eurasischen wandernden Wasservögel
+- **WVwAÜG** Gesetz zur Übertragung von Aufgaben der Bundeswehrverwaltung auf neue Behörden der Personalmanagementorganisation der Bundeswehr
+- **WWSUG** Gesetz zu dem Vertrag vom 18. Mai 1990 über die Schaffung einer Währungs-, Wirtschafts- und Sozialunion zwischen der Bundesrepublik Deutschland und der Deutschen Demokratischen Republik
+- **WZG** Warenzeichengesetz
+- **YUGStrGHG** Gesetz über die Zusammenarbeit mit dem Internationalen Strafgerichtshof für das ehemalige Jugoslawien
+- **ZAG** Gesetz über die Beaufsichtigung von Zahlungsdiensten
+- **ZAG-2018** Gesetz über die Beaufsichtigung von Zahlungsdiensten
+- **ZahlVGJG** Gesetz über den Zahlungsverkehr mit Gerichten und Justizbehörden
+- **ZahnFinAnpG** Gesetz zur Anpassung der Finanzierung von Zahnersatz
+- **ZDVG** Gesetz über den Vertrauensmann der Zivildienstleistenden (Artikel 2 des Gesetzes über die Beteiligung der Soldaten und der Zivildienstleistenden)
+- **ZeitG** Gesetz über die Zeitbestimmung
+- **ZensG-2011** Gesetz über den registergestützten Zensus im Jahre 2011
+- **ZensG-2021** Gesetz zur Durchführung des Zensus im Jahr 2021
+- **ZensTeG** Gesetz zur Erprobung eines registergestützten Zensus
+- **ZensVorbG-2011** Gesetz zur Vorbereitung eines registergestützten Zensus einschließlich einer Gebäude- und Wohnungszählung 2011
+- **ZensVorbG-2021** Gesetz zur Vorbereitung eines registergestützten Zensus einschließlich einer Gebäude- und Wohnungszählung 2021
+- **ZErgG** Zuordnungsergänzungsgesetz
+- **ZerlG** Gesetz über die Steuerberechtigung und die Zerlegung bei der Einkommensteuer und der Körperschaftsteuer
+- **ZerlG-1998** Zerlegungsgesetz
+- **ZFdG** Gesetz über das Zollkriminalamt und die Zollfahndungsämter
+- **ZGÄndG-14** Vierzehntes Gesetz zur Änderung des Zollgesetzes
+- **ZGÄndG-4-1957** Viertes Zolländerungsgesetz 1957
+- **ZGÄndG-4-1964** Viertes Gesetz zur Änderung des Zollgesetzes
+- **ZHG** Gesetz über die Ausübung der Zahnheilkunde
+- **ZHG-19ZG** Gesetz über die Zulassung von nach § 19 des Zahnheilkundegesetzes berechtigten Personen zur Behandlung der Versicherten in der gesetzlichen Krankenversicherung
+- **ZinsErmÖAnlG** Gesetz über Zinsermäßigung bei den öffentlichen Anleihen
+- **ZinsSenkEintrG** Gesetz über die Eintragung von Zinssenkungen im Grundbuch
+- **ZISAG** Gesetz zur Ausführung des Beschlusses 2009/917/JI des Rates vom 30. November 2009 über den Einsatz der Informationstechnologie im Zollbereich sowie zur Verordnung (EG) Nr. 515/97 des Rates vom 13. März 1997 über die gegenseitige Amtshilfe zwischen Verwaltungsbehörden der Mitgliedstaaten und die Zusammenarbeit dieser Behörden mit der Kommission im Hinblick auf die ordnungsgemäße Anwendung der Zoll- und der Agrarregelung
+- **ZISG** Gesetz zu dem Übereinkommen auf Grund von Artikel K.3 des Vertrags über die Europäische Union vom 26. Juli 1995 über den Einsatz der Informationstechnologie im Zollbereich
+- **ZJDVtrÄndVtr2011G** Gesetz zu dem Vertrag vom 30. November 2011 zwischen der Bundesrepublik Deutschland und dem Zentralrat der Juden in Deutschland – Körperschaft des öffentlichen Rechts – zur Änderung des Vertrages vom 27. Januar 2003 zwischen der Bundesrepublik Deutschland und dem Zentralrat der Juden in Deutschland – Körperschaft des öffentlichen Rechts –, zuletzt geändert durch den Vertrag vom 3. März 2008
+- **ZJDVtrÄndVtr2018G** Gesetz zu dem Vertrag vom 6. Juli 2018 zwischen der Bundesrepublik Deutschland und dem Zentralrat der Juden in Deutschland – Körperschaft des öffentlichen Rechts – zur Änderung des Vertrages vom 27. Januar 2003 zwischen der Bundesrepublik Deutschland und dem Zentralrat der Juden in Deutschland – Körperschaft des öffentlichen Rechts –, zuletzt geändert durch den Vertrag vom 30. November 2011
+- **ZJDVtrÄndVtrG** Gesetz zu dem Vertrag vom 3. März 2008 zwischen der Bundesrepublik Deutschland und dem Zentralrat der Juden in Deutschland – Körperschaft des öffentlichen Rechts – zur Änderung des Vertrages vom 27. Januar 2003 zwischen der Bundesrepublik Deutschland und dem Zentralrat der Juden in Deutschland – Körperschaft des öffentlichen Rechts –
+- **ZJDVtrG** Gesetz zu dem Vertrag vom 27. Januar 2003 zwischen der Bundesrepublik Deutschland und dem Zentralrat der Juden in Deutschland - Körperschaft des öffentlichen Rechts -
+- **ZKDSG** Gesetz über den Schutz von zugangskontrollierten Diensten und von Zugangskontrolldiensten
+- **ZKG** Gesetz über die Vergleichbarkeit von Zahlungskontoentgelten, den Wechsel von Zahlungskonten sowie den Zugang zu Zahlungskonten mit grundlegenden Funktionen
+- **ZKtgBrennstG** Gesetz über das Zollkontingent für feste Brennstoffe 1971, 1972, 1973, 1974, 1975 und 1976
+- **ZKtgScheinG** Gesetz über das Verfahren bei der Erteilung von Zollkontingentscheinen
+- **ZollVG** Zollverwaltungsgesetz
+- **ZPAbkAG** Gesetz zur Ausführung des Abkommens über den Zivilprozeß vom 17. Juli 1905
+- **ZPO** Zivilprozessordnung
+- **ZPOEG** Gesetz, betreffend die Einführung der Zivilprozeßordnung
+- **ZPÜbkHaagG** Gesetz zur Ausführung des Haager Übereinkommens vom 1. März 1954 über den Zivilprozeß
+- **ZPVtrAUTAG** Gesetz zur Ausführung des Vertrages zwischen der Bundesrepublik Deutschland und der Republik Österreich vom 6. Juni 1959 über die gegenseitige Anerkennung und Vollstreckung von gerichtlichen Entscheidungen, Vergleichen und öffentlichen Urkunden in Zivil- und Handelssachen
+- **ZRBG** Gesetz zur Zahlbarmachung von Renten aus Beschäftigungen in einem Ghetto
+- **ZRFG** Gesetz zur Förderung des Zonenrandgebietes
+- **ZSG** Gesetz über den Zivilschutz und die Katastrophenhilfe des Bundes
+- **ZSG-1** Gesetz über den Zivilschutz
+- **ZSHG** Gesetz zur Harmonisierung des Schutzes gefährdeter Zeugen
+- **ZTLPreissenkG** Gesetz zur Absenkung der Preise für zahntechnische Leistungen
+- **ZuckG** Gesetz über den Verkehr mit Zucker
+- **ZündwG** Gesetz betreffend Phosphorzündwaren
+- **ZuG-2007** Gesetz über den nationalen Zuteilungsplan für Treibhausgas-Emissionsberechtigungen in der Zuteilungsperiode 2005 bis 2007
+- **ZuG-2012** Gesetz über den nationalen Zuteilungsplan für Treibhausgas-Emissionsberechtigungen in der Zuteilungsperiode 2008 bis 2012
+- **ZugabeG** Gesetz über das Zugabewesen
+- **ZugErschwG** Gesetz zur Erschwerung des Zugangs zu kinderpornographischen Inhalten in Kommunikationsnetzen
+- **ZuInvG** Gesetz zur Umsetzung von Zukunftsinvestitionen der Kommunen und Länder
+- **ZuSEG** Gesetz über die Entschädigung von Zeugen und Sachverständigen
+- **ZuSEGuaÄndG-1976** Gesetz zur Änderung des Gesetzes über die Entschädigung von Zeugen und Sachverständigen und anderer Gesetze
+- **ZustAnpG** Gesetz zur Anpassung gesetzlich festgelegter Zuständigkeiten an die Neuabgrenzung der Geschäftsbereiche von Bundesministern
+- **ZustAnpG-2002** Gesetz zur Anpassung von Rechtsvorschriften an veränderte Zuständigkeiten oder Behördenbezeichnungen innerhalb der Bundesregierung
+- **ZustDG** Gesetz zur Durchführung gemeinschaftsrechtlicher Vorschriften über die Zustellung gerichtlicher und außergerichtlicher Schriftstücke in Zivil- oder Handelssachen in den Mitgliedstaaten
+- **ZustErgG** Gesetz zur Ergänzung von Zuständigkeiten auf den Gebieten des Bürgerlichen Rechts, des Handelsrechts und des Strafrechts
+- **ZustLG** Gesetz zur Erleichterung der Verwaltungsreform in den Ländern
+- **ZustÜblG** Gesetz zur Überleitung der Zuständigkeit der Obersten Rückerstattungsgerichte auf den Bundesgerichtshof (Artikel 9 d. Rechtspflege-Vereinfachungsgesetzes)
+- **ZVALG** Gesetz über die Errichtung einer Zusatzversorgungskasse für Arbeitnehmer in der Land- und Forstwirtschaft
+- **ZVG** Gesetz über die Zwangsversteigerung und die Zwangsverwaltung
+- **ZVGEG** Einführungsgesetz zu dem Gesetz über die Zwangsversteigerung und die Zwangsverwaltung
+- **ZVsG** Gesetz zur Gleichstellung mit Zusatzversorgungssystemen des Beitrittsgebiets
+- **ZweckVG** Gesetz über das Zweckvermögen des Bundes bei der Landwirtschaftlichen Rentenbank
+- **ZwVollstrRÄndG** Gesetz zur Änderung zwangsvollstreckungsrechtlicher Vorschriften
+- **ZwVollstrRÄndG-2** Zweites Gesetz zur Änderung zwangsvollstreckungsrechtlicher Vorschriften
